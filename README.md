@@ -2,86 +2,99 @@
 
 Pregnancy, proper nutrition, preparation for childbirth, baby care
 
-All - in the garden! 
+Native traditions (Russian cuisine) 
 
-It can be 90% to predict how the baby will be adapting to the kindergarten, regardless of the particular pre-school institutions. Let us consider five factors that influence it.
+Our health depends on nutrition. Different people in the old days had their own, proven experience of generations, gastronomic traditions. Today, Russians prefer cosmopolitan diversity on the table - we from time to time we order pizza, sushi love, cook the pasta. However, nutritionists and specialists doctors
+Gastroenterologists advised pregnant women to make a choice in favor of native customary dishes.
 
-Attitude of family members
+Traditional Russian cuisine
 
-Moms often ask, in what period of the adaptation process is less painful for the child? At what age is better to give the garden when he learns to eat, or before? In the second half of spring, so as not to fall into the peak of respiratory infections or September, when the permanent teachers will return from vacation. These and other nuances of playing a role in the successful adaptation of the baby to kindergarten, but significantly less than the readiness for preschool parents ... crumbs! 
-Most families this factor is almost overlooked. But the truth of life lies in the fact that first go to kindergarten mom, dad, grandparents, and only then he baby.
-If adults are ready, they are:
+Healthy food - it is delicious, full, varied food you partake of the full, but without the frills. For our Russian national cuisine, this approach to eating is a characteristic. It is this diet should adhere to the expectant mother.
 
-Firmly believe that you need to go to kindergarten.
-Really can "let go" to the child.
-I sincerely believe that the garden will be fine crumbs.
+According to historical records, in the old Russian people ate very unpretentious. On the table were simple products: soup, porridge, bread made from barley and rye, onions, garlic , radishes, turnips, cabbage, cucumbers, peas, fish, mushrooms, poultry and pets. Folk wisdom has long found the right combination of products. In Russia, ate porridge with butter, meat with vegetables, soup with sour cream. Russian cuisine contains mainly dense foods, but this is due mainly cold climates.
 
-If at least one item from the list of "fallen", adaptation is likely to be difficult. For example, the Pope is convinced that if neither wife nor mother-in-law do not work, then there is no need to give a child in preschool educational institutions. Grandmother, after his beloved granddaughter in kindergarten, is afraid of losing the meaning of life. Mom constantly recalls how she was crying with anguish in the quiet hour ...
+Porridge - Russian national dish today. Its cooked cereal of one kind, and a mixture of different, e.g., rice, millet and buckwheat. Porridge cooked with vegetables, added herbs and roots. Nowadays porridge consumed at breakfast , it provides the necessary charge of strength and energy for the whole day. 
 
-If there is such a problem and it does not even voiced nothing to do with the kid, not at all, even if not recognized by adults, it is still a child feels it! You can constantly repeat that in kindergarten well and paint all the charm of living in it, but if at least one member of the family is opposed to preschool, toddler take his side and responds protest. Some families themselves can improve the situation frank conversation. In other cases, the psychologist will need to work with an adult child relaying negative.
+Russian traditional table is not complete without soup. Soup, along with porridge also belong to our national cuisine. ( Recipes of national cuisines) Nutritionists confirm the beneficial effects of soups on the digestive system. They warm the stomach wall than to stimulate the secretion of gastric and intestinal juice. Also, using soup stabilizes intestinal peristalsis. Liquid soup, getting into the digestive tract, is rapidly absorbed, causing the body is not disturbed the normal water-salt metabolism and fluid balance. Therefore, saying "soup yes porridge - our food" is still relevant!
 
-Complications arise when parents and too willing to give crumbs to a kindergarten. There are times when a family is necessary "to get rid" of the child. Of course, not literally. In this case, the garden is not perceived as a stage of maturing, development, socialization of the child, as well as a forced measure, because my mother to go to work, or nanny quit, or had a second baby. Children feel when they "pass" in the garden, so as not to interfere so strongly resisted.
+Of Old Russian "Tale of Bygone Years" became aware of the jelly, which was brewed from wheat, rye, oats. In our time, they are almost forgotten, they were replaced by berries on starch. All desserts are based contain berries and honey, making them not only delicious but also very useful.
 
-The motivation of the child
+On a note!In the old tradition of the food cooked in the oven. Due longing products retain maximum nutrients. Today Russian furnace replaced Multivarki and steamers.
 
-Parents extremely important to realize that the baby must be configured in relation to kindergarten in a positive and voluntary manner. Therefore, it is not necessary:
+The vinaigrette
 
-     Talk to the kid about the admission to kindergarten due to the fact that the mother needs to work. Or even worse - to make money. 
+Potatoes - 5 pieces,
+carrots and beets - 2 units
+Sauerkraut - 100 g
+Canned or cooked beans - 100 g,
+Pickles - 2 units
+Bulb - 1 units,
+vegetable oil and salt. 
 
-The three-year child is able to talk - "Mom is doing something useful and necessary to people." "But do not I - not useful You need me more?" instantly devalue these arguments. The child finds that in this case, preference is given not to him. That other people and things for mom importantly it. Agree, it hurts! 
+Preparation:
 
-Alluring prospects that promise money, the baby is already envisions 2.5-3 years. After all, they give more toys, entertainment, delicacies, etc.. However, this approach is fraught with traps daily reckoning ( "Well, today earned money? Buy me ..."). As well as the formation of a child's rejecting attitude toward money, because they were the reason for separation from the mother, so the money - is evil.
+    Boil until tender potatoes, carrots and beets. Peel and cut into cubes.
+    Onions and cucumbers chop.
+    Straw cabbage shortened.
+    All the ingredients together, season with butter, add salt and mix well.
 
-    To say that all the children go into the garden and then to school, and you have to go! 
+ Soup with mushrooms
 
-It is not true. Since not all attend kindergarten and school, and the crumb is, in fact, nothing to nobody must. Just because it is more convenient to parents and the community. It is not necessary to impose and reinforce to the child that he must do what is accepted and do everything (if you want to bring up an interesting, creative and happy person).
+soup with mushrooms recipe
+White mushrooms dry - 30 g,
+Cabbage - 300 g
+Potato - 250 g
+Carrot - 2 pieces,
+onion,
+half cup barley,
+butter - 50 g,
+salt and pepper.
 
-    Bribing, blackmailing and intimidating.
-
-Parents use these tricks usually after admission to kindergarten, when they hear the first "do not want". The variations are many: from chocolate for good behavior in the kindergarten to the threat of punishment - for the poor. Embarked on this path, be careful - children quickly pick up the rules of the game and you will be subject to manipulation.
-
-How and what motivate your child? In kindergarten, it will find a lot of interesting things! If my daughter can paint for hours, long listen to fairy tales or loves to dance and socialize - often tell me, in detail and tempting that's about it. If the son spends most of the time for the construction or loves cars - talk to him about it mainly. Well, if you can still show. Before entering the garden often walk around beside him. In this case it is very helpful if the baby would be envious of those who rejoice over the fence.
-
-2-3 months prior to entering kindergarten begin regularly to discuss it. Sculpt, draw, build scenes from the life of the kindergarten. Play in kindergarten with dolls or soft toys, remember that the child does not have a clear idea of the kindergarten. Playing, show how the day: kids bring to kindergarten mom or dad, kiss and go. And the children eat, play, walk, sleep, after which their parents take home. You can talk about how the way of life: in the garden there is a dressing room, where there are lockers for each child, there is a small table and chairs, cots, shells, etc.
-
-Do not forget to tell educators and rules that must be followed. Remember how little you went to kindergarten. That is an attractive draw, but not idealistic picture, to avoid disappointment in the future ...
-
-Willingness psychological and social 
-
-Easily adaptable in kindergarten who may temporarily leave her mother. From the point
-of view of biology is the age of 3 years. Up to this point crumbs need the constant presence of adults close (mother, grandmother, etc.). But the reality is that for a short time to part with my mother of two toddler can safely and not to make a five-year.
-This is due, firstly, the mother's willingness or unwillingness to let go of my child. Behavior crumbs completely mirrored. 
-
-Second, it depends on the experience of separation. Encounter difficulties if it did not exist, or almost. Easier to tolerate separation those children who look for grandma or the nurse, as well as the group who attended a short stay or development centers.
-
-Thirdly, it is important to base the credibility of the mother - whether the child feels her love. You can round the clock for many years to be near her, but lose that trust in a moment. Just one day my mother suddenly disappeared (gone secretly) or deceived, for example, promised to take away from her grandmother in the evening and the following morning was too long or left. Sensitive child because such behavior moms get psychological trauma, which is likely to worsen during the adaptation to the kindergarten.
-
-Psychological readiness for garden arises when there is a need for interaction with peers. Temporary separation from the mother need to expand the circle of communication. Child shows sustained interest in other children in three years (some boys in 4). Of course, if the baby is walking on the playground, and my mother taught to be friends with peers or go to visit, development center, the word "saw" children. 
-
-A child is ready to attend kindergarten, if able to communicate with other people by adults. With peers can be fun to roll the cars and at the same time to be silent, but it is necessary to talk with the teachers. This mother can and without a word to guess that the toddler wants to use the toilet, eat, drink or rub the sore ass. And my aunt have to say about it! Adaptation is successful if the baby has learned to:
+Preparation:
 
 
-    I understand that he currently feels or wants;
-    mentally formulate it;
-    Do not hesitate and do not be afraid to say;
-    articulately pronounce words.
+    Pearl barley rinse and soak in lukewarm water soak hour. Separately in the same mushroom soak (3-4 hours).
+    Remove from the water and chop the mushrooms and cook until cooked in the same water.
+    Onion and carrot peel and chop. Melt the butter and sauté vegetables 5 minutes in the pan. Then pour cup of boiling water and simmer for 10 minutes on medium heat. The contents of the pan into the lower pan with mushroom soup.
+    Remove the peel from the potatoes, cut into cubes, chop the cabbage. Barley boil in water until tender, drain.
+    In a saucepan, add the barley, potatoes, cabbage, salt and pepper. Cook over medium heat until Boil potatoes and cabbage.
 
-Psychological comfort a child in kindergarten depends on the level of emotional intelligence, verbal skills and vocal apparatus. By the way, and educators with the baby will be easier. Therefore, to develop a chubby little boy it is necessary as soon as possible.
+ Meat in a rural
 
-To be continued...
+meat recipe in a rural
+Veal - 600 g,
+Pickles - 3 pieces,
+eggs - 2 pieces,
+onion,
+milk - 100 ml,
+Mustard - 1 tbsp,
+Brine - 2 tbsp,
+Rusty oil and spices.
 
-
-
-
-
-
-
-
-
-
-
-
-
+Preparation:
 
 
+    Thin slices of sliced ​​meats, repel and put in a cast-iron frying pan "lap". Sprinkle with salt, pepper.
+    To a liquid state breed brine mustard and lubricates the meat. Pan cover with lid and allowed to stand for 2-3 hours.
+    Chopped onion rings. In a pan pour oil and fry it a minute. Spread on veal.
+    Cucumbers shred on a grater and stir with the egg. Pour evenly over the meat.
+    Preheat oven to 180 degrees, put the pan and cook for an hour.
+    Beat the second egg with the milk and pour evenly into the meat for 20 minutes until cooked meals.
 
+Sbiten
+
+Per liter of water:
+Honey - 150 g,
+cloves and cinnamon - 5 g,
+Ginger root - 30 g
+Half of the orange,
+Seabuckthorn - 80 g.
+
+How to cook:
+
+    Fresh or fresh frozen buckthorn boiled in boiling water for 15 minutes to foam appearance. Broth we filter and allowed to cool.
+    Honey is dissolved in hot water, adding clove, cinnamon, chopped ginger, orange circles. Boil for 5 minutes, removing the formed foam.
+    After 30 minutes sbiten filter and add the cooled broth of sea buckthorn, a good mix.
+    Ready sbiten drink hot.
+    
+    
