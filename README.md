@@ -2,45 +2,65 @@
 
 Pregnancy, proper nutrition, preparation for childbirth, baby care
 
-Big washing 
+The first family conflict 
 
-Of all of chores is to wash the responsible man can manifest itself in earnest. This activity requires a literate approach to smart technology, knowledge of the laws of chemistry and physics, the strong male hands.
-Undoubtedly disposable diapers are very helpful to avoid additional washings, but still the baby needs a daily change of clothes. And my wife does not have time for a washing machine. So,
-Dear Pope, follow the advice on setting up a home "laundry".
+What will be discussed does not apply to women with Rh positive blood. But if the lady negative Rh and planned pregnancy or already have, then it is better read this article carefully. As will be described Rh disease, which is very dangerous!
 
-Rules
+What is Rh-conflict?
 
-How to wash children's clothes? They are washed separately from adults, including diapers. Bacteria parents can cause the crumbs disease because the immune system of a baby is still very weak.
+It appears between mother and fetus. If a woman has Rh positive, the risk for the baby there, and in this case a negative Rh may be the Pope, and even a child. Also, the danger can not be held "double" Rh negative, when the blood of both parents with a minus sign. The danger can only arise if the mother is a carrier of negative rhesus, and the child wants to take my father's positive. 
 
-Children's clothes should be kept separate from adults. This rule applies not only clean, but also dirty.
+People with Rh + majority of the world 85%, Rh- have only 15% of the population. Rh factor - this is a special protein that is found on the surface of red blood cells (red blood cells). The difference is that people with a positive Rh this protein is, but in "negative" it is not.
 
-Children's clothing can not be washed in the usual powder, which you used to use for the whole family. You must buy a special vehicle designed for newborns. The packaging should not only be marked as "baby clothes" and the word "suitable from the first days of life." Well, if the powder will be hypoallergenic and antibacterial and disinfectant properties. Such means besfosfatnye not contain much chlorine, surfactants and perfumes.
-Preference was given to powders and liquids in the composition of which there is no optical brightener. After washing diapers and even sparkling white, but do not allow the child's skin to breathe. It is better to buy funds with silver ions and extracts from medicinal plants.
+The appearance on the boy born with Rh negative does not bother, because minus in this case is no worse than a plus. But if a girl has inherited Rh, her parents worried, because in the future she give birth.
 
-Water for washing clothes newborn should warm up to 90 degrees. Many modern cars come with a program for washing children's clothes that just important for you.
+Rhesus-conflict reminiscent of the armed conflict. The fact that the immune system of the pregnant woman with a negative Rhesus struggling with Rh-positive fetus. It is perceived as a hostile agent from which you want to get rid of. During pregnancy in the mother's blood enter the baby's blood cells, which can not be avoided. The immune system of a woman directs specific antibodies to destroy the nascent body. The woman, this war will have no effect, but the child is in danger. Even if he survives, he will be born with serious diseases. Can suffer brain, liver, nervous system, heart, kidneys.
 
-Going to the hospital, preliminary prostirnite purchased undershirts and unitard. First contact children's skin must take place with the clothes, wash by hand with the help of children's soap. Rinsing procedure must be repeated three times under running warm water, since it is more difficult to wash off than powder.
-After that, take iron and iron the clothes on both sides to finally kill possible germs. Reinforced pressing need to heal the umbilical wound ( of umbilical hernia ), which will take at least a month after the appearance of a baby into the world.
+Therefore, careful monitoring of pregnant Rhesus negative. Well, that under the Rh conflict of mother and fetus such danger - a rarity. Also it helps reduce risks prevention.
 
-How to remove stains from fabric? If crumb soiled diaper and overalls, to "go po- big", the first dirty places washed off with cold water soap, then overfill things in the car.
-Duringfeeding comes time to stains from food. Do not use chlorine-based bleaches, it causes skin allergy. Bring harm to the baby and the pungent smell of chlorine. It is better to use hydrogen peroxide. With the help of baby skin will be safe, stains of any complexity will disappear without a trace, except for long-standing, provide disinfection of bacteria and easy to wash off.
+The first, second ...
 
-After thorough rinsing washing is required to remove residual soap suds. Select the "extra rinse".
+Doctors antenatal clinic, only to put on record a pregnant woman, immediately sent her to take blood from a vein on the definition of the group and rhesus. Future father's blood is examined as well. If a woman has Rh negative and a man - is positive, the doctor must demonstrate to a pregnancy special attention. Panicking in any case it is not necessary, especially during the first pregnancy.
 
-Children's clothing is resistant to extraction and drying. Do not hesitate to put a high speed, if there is no time to wait and need to quickly get a new batch of sliders and diapers.
+Statistics says that the first birth experience Rhesus conflict only in 1.5% of cases. The mother's body can produce two types of antibody: IgM and IgG. In the first pregnancy, Rh-conflict, as a rule, does not arise. As highlighted antibodies type IgM, which due to its large size it is difficult to overcome the placental barrier. It gets a small amount, which is insufficient for the emergence of Rhesus-conflict.
 
-Equipment also requires maintenance. After the birth of the child will have to operate the washing machine several times a day. Despite this, after each time the tray should be dried to a powder, and the gum near the charging port wipe dry. Doing this regularly will be able to prevent the growth of mold, so dangerous to small chistyuli.
-Caring laundress will be evaluated sensitive skin baby. If done properly, allergies and irritation of the baby will not.
-If the baby's skin is prone to sudden rashes, you must take it seriously and to pay special attention to hygiene ( bathing-allergy baby ).
+At each subsequent pregnancy, if not to carry out prevention, the risks increase. The number of antibodies increases and already dominated by small antibody type G, which easily crosses the placenta and the blood of the baby. However, this does not mean that women with negative Rhesus factor is not worth thinking about the second, and even more the third baby. As, however, we must not forget about the low risk during the first pregnancy.
 
-Where dry and keep things clean?
+Recommendations
 
-drying problem is in houses without balconies or shortage of space. In this case, use the drying trundle. She does not need a lot of space, it can withstand up to 5 kg of laundry. The design can be easily assembled and removed from the eye until the next time.
+If you become pregnant, and the expectant mother has Rh negative, you must:
 
-If there is no room even for placing drying clamshell, set the elevator-drying. Since it does not need to stand on tiptoe to reach the ropes: a special mechanism is able to lift and drop the laundry kilograms to the desired height. There are ceiling and wall models, so the mounting holes can be drilled anywhere. This design can withstand up to 30 kg.
 
-Keep clean clothes to iron is in a large basket of twigs. After - in the chest, or the children's closet. On a shelf sliders and diapers place vertically instead of horizontally. So they need less space and everything is in full view. You do not have to disturb the order of the entire stack when pulling out of one subject.
+    Right to be registered in the antenatal clinic. On the eighth week regularly donate blood from a vein to determine antibody titer. The greatest danger arises from the 28th week of pregnancy, when the fetus is enhanced blood circulation and antibodies act more intensively than before. Up to 32 weeks of blood is necessary to hand over every month after that period - twice a month, in the ninth month - weekly. Donate blood at the appointed time, because the sooner the blood appear antibodies and the more they become, the greater the risk to the fetus.
+    Do not skip doctor visits, time going through all of the studies (ultrasound, CTG, doplerometrii).
+    At 28 weeks of pregnancy is required to enter the Rh immunoglobulin to stop the production of antibodies.
 
-How to choose the clothes ( clothes for the newborn )?
+If a child is born with Rh positive, you must re-enter the Rh immune globulin to help prevent Rhesus conflict in subsequent pregnancies. If the birth took place with complications (cesarean section, twins , bleeding) will need two doses of Rh immunoglobulin.
+
+Intrauterine study
+
+Rh conflict is detected by a blood test. A baby suffering degree - by hardware studies. Ultrasound will determine whether there is hemolytic disease of the fetus, what its degree of development. US negative results, i.e. the presence of disease markers (increase in the liver, the blood velocity in the middle cerebral artery in the fetus) - a reason for assigning invasive diagnostic methods: cordocentesis or amniocentesis. They cause complications, but other diagnostic methods do not.
+
+Planning for pregnancy
+
+Rh- women with pregnancy should be planned with all the responsibility and monitor it closely. Before conception:
+
+    Do not allow abortion. With each pregnancy antibodies in the blood becomes larger.
+    Beware blood transfusion even if it is the same monkey. It can be an antibody.
+    No later than 3 days after the miscarriage , abortion, ectopic pregnancy, blood transfusions, childbirth make an injection into the muscle of the human Rh immunoglobulin D.
+
+To date, the problem of pregnancy with Rh-conflict mother and fetus is very urgent. Due to weak awareness of the majority of women find out about the possibility of prevention is very late, when it was impossible to do anything, but remains to be seen.
+
+Prevention of complications
+
+Scientists have shown that the Rh factor in the unborn child is laid at 6 weeks of gestation. Urgent prevention with the introduction of immunoglobulin required a woman:
+
+    If there are complications in this period. For example, which began miscarriage (any bleeding), cervical incompetence, which requires suturing the cervix.
+    If you have to invasive diagnostics. For example, at high risk by screening.
+    With the introduction of immunoglobulin at the very beginning of pregnancy require repeated administration at 28 weeks.
+
+Hemolytic disease of the fetus without treatment causes fetal death. But today there are treatments even edematous form of the disease, which is the most severe and leads to death in 98% of cases. Therefore, during pregnancy with Rh-conflict give birth to relatively healthy baby is still possible if the expectant mother to ensure careful monitoring and control.
+
+
 
 
