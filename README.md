@@ -2,86 +2,64 @@
 
 Pregnancy, proper nutrition, preparation for childbirth, baby care
 
-Damage refined products (2 h) 
+Damage refined products (1 h) 
 
-In this part we will focus on refined oil and rice, as well as those useful products that can replace them with success.
+In the production of certain foods are subjected to continuous industrial processing. To give them specific properties they are cleaned from the nutritional properties using thermal, chemical and other methods. Refined products as a result lose their vitamins, minerals, fiber and other nutrients, becoming not only useless but also harmful products, especially for
+pregnant women. Consider the most popular products are refined, their harm to the body, and provide a healthy alternative.
 
-Refined vegetable oils
+Wheat flour (higher grade)
 
-To maximize squeeze from sunflower seeds and canola oil, their first organic solvent is poured called hexane. Then try to remove residual solvent vapor and alkali solution. Thereafter, the product was subjected to refining, i.e. purification, which disappears when most of the nutrients (minerals, vitamins, chlorophyll, lecithin). That oil has become clear, light yellow color, it is bleached. Additionally filtered and deodorized by removing odor.
+To get white flour, it is subjected to refining, that is, the maximum grain cleaned by removing along with its shell fiber, vitamins, minerals. White flour is obtained only from the central part of the grains, in which a lot of starch and gluten. Such a high carbohydrate food enters our body and fills it with empty calories. Moreover, the protein component of gluten - gluten harmful to people with celiac disease (an inherited disease). The disease manifests itself:
 
-Sunflower and rapeseed refined oil is very popular due to marketing tricks. The labels are full of attractive slogans that cholesterol-free product and preservatives. Of course it is, because in all plant foods, in principle, it can not be. Cholesterol is only found in animal products. And what about the lack of preservatives can be answered as follows: a product and does not need them, since it has been repeatedly subjected to chemical treatment.
+    chronic diarrhea;
+    low birth weight;
+    diabetes;
+    anemia;
+    depression .
 
-We look for replacement
+This disease affect 1% of the population. However, recent studies have shown that a much higher percentage of people experience only mild gluten intolerance. Celiac disease can not be cured, so the only way out is to eliminate foods with gluten from the diet. First and foremost, this applies to refined wheat flour. 
 
-Unrefined olive oil is rich in oleic acid (unsaturated fatty acid omega-9). It is well absorbed, has beneficial effects on metabolism, blood vessels, blood cholesterol levels. The olive oil contains most of the omega-9 group fatty acids. With their help it is possible to get rid of carcinogens to normalize blood pressure , a prophylaxis of diabetes and obesity.
+It is worth remembering that the pastries and other dishes made with white flour with excessive use of trigger weight, digestive system diseases, the development of diabetes. All due to the high glycemic index of the product.
 
-The unrefined olive oil rich in vitamins A, D, K, which are necessary for laying the tissues and organs of the fetus. With their help the developing bone, organ of vision, regulates cell growth and development. It possesses antioxidant vitamin E also prevents the formation of thrombi.
+Substitutes refined wheat flour
 
-The most useful unrefined olive oil, it is obtained by a mechanical method, when heated of not more than 27 degrees (cold pressed). This category is designated oil:
+Replace refined wheat flour other, for example:
 
-     Extra Virgin,
-     Fine virgin olive,
-    Semi-fine virgin olive oil.
-
-To save all the useful substances, such oils should be consumed only in salads, not subjecting to heat treatment.
-
-Linseed oil refined
-
-Cold pressing can save a unique natural combination of polyunsaturated fatty acids omega-3, omega-6, lecithin, phytosterols, beta-carotene. Linseed oil leads to normal lipid metabolism, it stops the development of diseases of the digestive and cardiovascular systems. Also refined linseed oil improves the elasticity of blood vessels that is necessary for the prevention of varicose veins , stroke, infarct, high blood pressure. 
-
-Linseed oil is refined with regular use has a positive effect on the function of the brain, the retina of fetal eyes.
-
-Take unrefined flax seed oil can be mixed with milk products, juices. For example, constipation need a glass of yogurt, add 1 tsp oil and drink before going to bed. Flaxseed oil is added to thesalads , soups, garnishes, thus not subjected to high temperatures, to preserve the structure of the fatty acids.
-
-Peeled rice
-
-Polished white rice is a refined product. When processing a
-surface grain shell removed and a part of the embryo. In them there is a large amount of vitamins and minerals. Therefore, from the polished rice dishes are less useful, despite the best razvarivaemost cereals and absorption of carbohydrates.
-
-Polished rice - the most refined product. During the processing of grain it remains
-only inside of the grain, which is called endosperm. In it 60% starch,
-only a small proportion of proteins and other nutrients.
-
-The refined white rice a little mineral substances, almost no vitamins and absolutely no fiber.
-When polishing the rice lost to:
-
-     70% thiamine (vitamin B1) 
-     30% - B2,
-     50% - PP.
-
-Upon receipt of the polished grain loss even more.
-
-Replacing refined rice
-
-Brown (brown) rice obtained by the method of peeling sparing shell in
-which most of the vitamins and the shell mineralov.Otrubnaya grain remains, and with it, polyunsaturated fatty acids, fiber, B vitamins
-Brown rice richer in nutrients than white refined , it
- contains more:
-
-    At 2.5 times the potassium;
-    3 times vitamin B6 and E;
-    1.5 p. vitamin B1;
-    The 4.5 p. fiber.
-
-Fiber is essential for gastrointestinal health. Edible fiber prevent colon cancer, obesity, constipation .
-
-Brown rice sheath contains antioxidants that lower blood cholesterol levels, a surplus output, reduce its uptake than prevent the development of heart and vascular diseases as well as obesity.
-
-Keep in mind that brown rice is not stored for a long time (since the present composition of fatty acids), and since the stored tissue sheath and preparing for longer refined.
-
-How to cook brown rice?
-
-Soak rice useful in cold water and leave overnight. In the morning, drain the water, pour
-fresh (three times more than rice) and put on ogon.Cherez 10-15 minutes after boiling check for availability. It should be slightly undercooked. Turn off gas, close the lid tightly, and leave for another 10-15 minut.Zatem drain and rinse under running cold water using a colander. When the drain water transfer to a pan which has roasted until golden brown onions. Season with salt and pepper, stir and heat.
-
-Wild rice is black, it is very appreciated for its membership. It has a lot of protein: 100 g - 15, thanks to a lot of folic acid, in great demand by pregnant women. The black rice it is 5 times more than in the drill - daily intake is placed in a beaker. Wild rice is rich in minerals:
-
-    magnesium - 178 mg (50% RDA),
-    Zinc - 7 mg
-    manganese - 1.4 mg.
-
-In conclusion, I want to draw attention to a pregnant woman to useful non-refined products at a time when it takes the bad habit of refined with the store shelves.
+    Oat. It can make yourself or buy ready-made. Take oatmeal, which require a long cooking or grits and grind in a coffee grinder. Get useful flour, because it has a lot of fiber, slow carbohydrates, vitamins and minerals. It will be good in baking, in the preparation of pancakes and other dishes.
+    Corn. It lowers the blood cholesterol level, high in protein, valuable vitamins (A, E, group B), iron and phosphorus.
+    Buckwheat. This meal is very useful. The book contains almost all vitamins, there is iron, zinc, calcium, important for the formation of blood-forming, nervous and skeletal systems of the future of the child and the health of the pregnancy; Iodine helps the thyroid gland function properly, increases the body's defenses; Folic acid is actively involved in hematopoiesis, which is important for both.
+    Gram. This product is prepared from chickpeas. Meal rich primarily protein and vitamins A, C, E, PP, K, group B Assist exchange processes in the body cells contained therein minerals - calcium, potassium, silicon, copper, boron and molybdenum.
 
 
+Refined sugar
 
+ It is derived from sugar beets or sugar cane. The white color of sugar obtained in the refining process. Laborious process involves the use of chemicals. Therefore, to talk about the beneficial properties of refined sugar is not necessary. The white raffinate 99.9% sucrose, which is a lot for a pregnant woman. She is best to limit the intake of high-calorie carbohydrate. Since there may be unpleasant consequences: dental caries, obesity, deficiency of vitamin B1 associated with the active flow in the assimilation of simple sugars.
+ 
+ We refined sugars high glycemic index, which means it is able to quickly raise the level of glucose in the blood, increasing the risk of occurrence of diabetes in pregnancy. 
+
+Refined sugar is "waiting" have in a variety of products, so it is important to carefully read the labels on their composition. Manufacturers often mask the name of refined sugar, but you need to know that "sucrose" "maltose", "syrup", "sugar cane juice", "dextrin or dextrose", "sweetener made from corn" - all kinds of sugar. Therefore exceed the daily rate of refined sugar can be very simply and quickly.
+
+Substitutes for refined sugar
+
+Dark chocolate. This type contains no sugar at all or only slightly. The cocoa beans are very useful in their composition the theobromine relaxes the bronchial muscle, blood vessels (especially the brain, kidney, and skin), improves blood flow to the kidneys. It normalizes the respiratory function, saturates the blood with oxygen, reduces the concentration of carbon dioxide, stimulates the activity of the heart. ( Pregnancy and bad heart ) why chocolate is recommended to use athletes and people engaged in physical labor. But when mental stress theobromine is able to provide stimulating effect - enhance memory and attention.
+
+Support the cardiovascular system flavonoids. These valuable substances chocolate block the action of free radicals, protects the viability of cells, thereby slowing down the aging process and stop the development of atherosclerosis. Flavonoids normalize the immune system, prevent the development of inflammation and the growth of cancer cells.
+ 
+ The dark chocolate high in tryptophan. This amino acid is converted into serotonin - the hormone of happiness.
+
+In addition to cocoa chocolate composition has a soy lecithin, responsible for the smooth consistency of the product. It is involved in the construction of the membranes of body cells, first of all, it concerns the nervous system and brain tissue. Therefore, increased mental capacity, improves memory and thinking. Lecithin normalizes the liver, obesity preventing it reduces blood cholesterol by inhibiting its deposition in blood vessels.
+
+Lecithin normalizes sexual activity and has a positive effect on sexuality.
+
+Marmalade. Most Valuable Jelly fruit. It contains the nutrients of the two kinds of marmalade: fruit puree - a pectin jelly - agar and agaroid.
+
+Pectin helps rid the body of radionuclides, heavy metals, pesticides. Also reduce cholesterol, are used for combating metabolic disorders, diseases of the gastrointestinal tract, liver and pancreas.
+
+Agar and agaroid are gelling agents, they are extracted from seaweed red and brown. The agar many mineral salts, polysaccharides, vitamins ( How to keep vitamins? ), Vegetable acids and agaropectin. The substance is not absorbed by the body, but it is necessary for the supply of beneficial bacteria in the gut that he serve as protection from the appearance of pathogens. Agar also lowers blood cholesterol and triglyceride harmful results to normal glucose, elevated gastric acidity promotes its reduction, stimulates peristalsis, slightly gently.
+
+Marshmallow and pasta products are useful due to its composition. They contain: agaroid agar and pectin, egg white, the latter contains all the essential amino acids for the body. Egg protein, milk protein as a different balance of amino acids in meat and fish in this respect they are very inferior.
+
+The second part of the article about the dangers of refined products.
+ 
+ 
+ 
