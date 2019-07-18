@@ -2,52 +2,45 @@
 
 Pregnancy, proper nutrition, preparation for childbirth, baby care
 
-What is coagulation? 
+Benefits of cow's milk for expectant mothers
 
-Expectant mothers are frightened at the mere spoken word "coagulation". But this is just one of the many compulsory blood tests during pregnancy.
-How often it is necessary to hand over what it shows and how to decode it in the paper.
+For feeding calves milk nature has created. It has everything, what is needed mom and baby, and the most useful combination. However, the milk diet has its own quirks.
+Expectant mother from cow's milk products will bring many benefits. Yogurt, cottage cheese, cheese and milk are well absorbed, provide the body with all the necessary, so that the child developed normally.
 
-What is coagulation?
+ What are the benefits of milk?
 
-The circulatory system during pregnancy needs to be increased attention since her work - an important indicator of health. Coagulation hemostasis checks. It is a system that is responsible for normal blood, including its coagulation during bleeding, to avoid large blood loss, such as during childbirth. If coagulation hemostasis show low, then the person can lose a lot of blood even for small cuts. High rates threaten thrombosis, heart attacks and strokes. Both are dangerous anomalies as to a critical point, e.g., surgery or childbirth, did not show themselves.
+In this product over one hundred nutrients. It contains proteins, carbohydrates, fats, vitamins, minerals, hormones and enzymes.
 
-Pregnant hemostasis system becomes another. Such restructuring the way nature intended. If there is a third child-bearing circulation - uteroplacental. Since the body prepares for a gradual increase in blood flow, and the inevitable loss of blood during childbirth.
+The most valuable component of milk is a protein that is rich in amino acids. Thanks to him, the success of a milk products replace meat, eggs and fish , which is especially important for vegetarians, who could not refuse eating habits during pregnancy. By the way, the milk protein is absorbed faster than meat and fish. In its structure there are methionine, this particular amino acid is responsible for the correct operation of the vessels in both. 
 
-How often do you take coagulation?
+The most useful animal fats in milk phospholipids are in the form of lecithin. This building material for cell membranes, membranes of nerve fibers. Also substances lead to normal blood pressure in the expectant mother.How to cope with high blood pressure?
 
-The analysis is usually carried out once every trimester. In some cases, more frequently. The need to appear in diseases of the circulatory, immune system, varicose veins ,
-liver problems, before or after surgery.
+Lactose - lactose - is cleaved into glucose and galactose, the process starts in the intestine enzyme lactase. Components and actively absorbed without problems. Therefore, milk and its derivatives contribute to rapid saturation.
 
-In group risk are   the future mothers with Rhesus negative . Their immune system
-perceives its own antibodies as foreign, so fighting with them.
+The milk minerals are present: magnesium, sodium, iodine, zinc, calcium salts and phosphorous, fluorine. A pregnant woman needs 2000 mg of calcium a day to share it with a child, because he happens skeleton laying and future teeth. If there is a deficiency in calcium, the child will begin to "pull" it from the mother's bones. Which will lead to their fragility and osteoporosis during pregnancy. In the same risks as the expectant mother and teeth. To saturate the body calcium, drink every day 0.5 liters of milk. Enrich the diet of cottage cheese, yogurt and cheese.
 
-Increased susceptibility to blood clotting requires periodic investigations. Analysis vein taken from fasting (8 must pass hours).
+For pregnant women also need vitamins A, D, B group is especially important Riboflavin - vitamin B2. In a glass of milk contains a fifth of the daily allowance.
 
-If coagulation was carried out at the wrong time and were found deviations from the norm, there is a high risk of miscarriage or premature birth, and a fetus - disorders of brain function.
+Carefully
 
-Decoding results
+Do not get carried away with milk and sour-milk products in the following cases:
 
-Indicators and other coagulation tests decrypts the doctor, as they may vary. For example, in chronic diseases, some data are not correct, but the pregnancy is without complications.
+    Weight gain greater laid this week. Discard fat milk and cottage cheese. Prefer less high-calorie dairy products. 
+    Worried about nausea, diarrhea, bloating after ingestion of milk. The explanation is simple: in the stomach lacks specific enzymes or they are not active enough. Lactose is not digested because of genetic predisposition. In nerascheplennom as it enters the intestine and fermented. In this case, discard the milk to dairy products. Discomfort will not occur after the yogurt and yogurt.
+    Dairy products are not able to raise a low hemoglobin - that is a fact. Milk few essential minerals - iron and copper. If the test results in the antenatal clinic showed anemia, must be present in the diet of meat, which is rich in iron.
+    Think about the menu because the milk is not compatible with many products. With him good neighbor grains, starchy vegetables, such as potatoes and sweet fruits and berries . Even with delicious bun milk does not "get along." No wonder our grandmothers told "eat milk", considering it a separate dish. Therefore drink milk after a few hours of ingestion. At a fractional power, which is very useful for pregnant women, as a snack is well suited cup of yogurt or sour milk.
 
-The coagulation consists of 8 indicators. They detect even small deviations:
+Choice of dairy products
 
-Fibrinogen (protein). It is an essential part of a blood clot when clotting. Outside pregnancy, its index is at a level of from 2 to 4 g / l. During pregnancy - up to 6 g / l. Elevated levels of danger thrombosis. Lowering happens when toxicosis . Utero-placental circulation increases the level of fibrinogen with each passing month, the maximum occurs at the time of delivery.
+This yogurt is prepared to leaven using Streptococcus thermophilus and Lactobacillus bulgaricus. Production technology confirms the inscription on the number of lactic acid bacteria: 
 
-APTT stands for period of time for which the blood is minimized. In pregnant women, this interval due to the increase of fibrinogen is 17-20 seconds. Outside of
-pregnancy, she curls up for 25-35 seconds.
+If it's not, then you have in the hands of yoghurt product. There are no bacteria, useful properties it is different.
+The plant produces sour-milk production in two ways:
 
-Thrombin time shows how much lasts the last stage of the blood coagulation. Norm - 11-18 seconds. Due to the increased fibrinogen, thrombin time in pregnancy lasts longer. Deviations indicate malfunctions of the liver.
+    Tank (western cuisine). Milk fermented in a large container. Then, it is stirred and poured into smaller containers, so it was convenient to experiment with taste and consistency.
+    Thermostat (Russian cuisine). Milk with ferment is poured into a glass or plastic container, and then fermented. fermentation process is in the bank. The finished product can not be put sugar and additives. Therefore simple carbohydrates and harmful substances in the sour cream and yogurt, manufactured thermostatic method, no. The product is different fat content.
 
-Prothrombin - a protein found in the blood plasma, it is a precursor of thrombin, forming clots along with other substances. Its quantity determines the density and the ability to timely clotting krovi.V normal concentration of 78-142%. Increased rate of pregnancy marks the beginning of placental abruption. ( What is FPN? The risk of disease development. )
-
-The platelets are formed in bone marrow, blood belong to the elements. During pregnancy may slightly decrease. A sign of the disease is a strong contrast to the norm. Platelet deficit appears on the background of malnutrition or development of disseminated intravascular coagulation (hemostasis system failure).
-
- D-dimer controls thrombotic process. Factor necessary for the timely
-detection trombozov.U pregnant women is normal, he is gradually increasing. The rapid jump indicates diabetes mellitus, kidney disease.
-
-Antithrombin III - a protein that slows down the clotting krovi.Ego level need to constantly monitor if the pregnant woman takes drugs to reduce it. Deviation of 50% may be indicative of the development of thrombosis.  
-
- Group identifies specific antibodies lupus coagulant. If everything is in order that they should not be. Upon detection of the doctor excludes autoimmune diseases and Rh conflict. Antibodies in the blood often talk about the presence of preeclampsia. This pathology worsens the condition of both.
+Tip! Milk can fix the chair, so eat dairy products. Yogurt drink only fresh.
 
 
 
