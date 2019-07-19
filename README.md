@@ -2,45 +2,38 @@
 
 Pregnancy, proper nutrition, preparation for childbirth, baby care
 
-Benefits of cow's milk for expectant mothers
+Umbilical hernia 
 
-For feeding calves milk nature has created. It has everything, what is needed mom and baby, and the most useful combination. However, the milk diet has its own quirks.
-Expectant mother from cow's milk products will bring many benefits. Yogurt, cottage cheese, cheese and milk are well absorbed, provide the body with all the necessary, so that the child developed normally.
+Many doctors do not consider umbilical hernia disease, they say that it is a defect that is responsive to correction. But for anxious parents is a problem of universal scale.
 
- What are the benefits of milk?
+What is an umbilical hernia?
 
-In this product over one hundred nutrients. It contains proteins, carbohydrates, fats, vitamins, minerals, hormones and enzymes.
+Affliction is a surgical pathology. It is found in every fifth child and every third premature baby. Minimum defect navel notice almost every pop-born baby. When he screams or cries hernial protrusion arises, which is alarming parents. They think that the child became restless because of an umbilical hernia or believe that it arose because of frequent crying .
 
-The most valuable component of milk is a protein that is rich in amino acids. Thanks to him, the success of a milk products replace meat, eggs and fish , which is especially important for vegetarians, who could not refuse eating habits during pregnancy. By the way, the milk protein is absorbed faster than meat and fish. In its structure there are methionine, this particular amino acid is responsible for the correct operation of the vessels in both. 
+But it is not so. Umbilical hernia belongs to the congenital flaws. The newborn was born with a defect already connective tissue in the umbilical region, in the first weeks of life, it is invisible. Only after some time (a month or two) mother notices a slight protrusion of the size of a pea or a nut, which sometimes increases when coughing, when crying or defecating. In some cases, the hernia sac gets part of the fat or bowel loops. Typically, they can be easily straighten back.
 
-The most useful animal fats in milk phospholipids are in the form of lecithin. This building material for cell membranes, membranes of nerve fibers. Also substances lead to normal blood pressure in the expectant mother.How to cope with high blood pressure?
+ Complications of hernia
 
-Lactose - lactose - is cleaved into glucose and galactose, the process starts in the intestine enzyme lactase. Components and actively absorbed without problems. Therefore, milk and its derivatives contribute to rapid saturation.
+Complication of hernia is a pinching or squeezing the contents of the hernial sac developmental disorders in the circulatory organs restrained up to necrosis of tissue. But prejudice are very rare. Therefore it is better to do without panic, but instead take an effective treatment. It happens that parents are much worried about the diagnosis of umbilical hernia, so do not ask the doctors, but just need to do something.
 
-The milk minerals are present: magnesium, sodium, iodine, zinc, calcium salts and phosphorous, fluorine. A pregnant woman needs 2000 mg of calcium a day to share it with a child, because he happens skeleton laying and future teeth. If there is a deficiency in calcium, the child will begin to "pull" it from the mother's bones. Which will lead to their fragility and osteoporosis during pregnancy. In the same risks as the expectant mother and teeth. To saturate the body calcium, drink every day 0.5 liters of milk. Enrich the diet of cottage cheese, yogurt and cheese.
+But hurry this is not necessary. If you follow the advice of the doctor, there is a high percentage of the likelihood that an umbilical hernia will pass by itself. As a rule, experts advise to wait until 5-6 years. If after this time is not a defect has resolved, the child operation is required.
+However, navel hernia may increase or infringement occur, infection and other complications - doctors will not delay in these cases. All the rest - showing conservative treatment.
 
-For pregnant women also need vitamins A, D, B group is especially important Riboflavin - vitamin B2. In a glass of milk contains a fifth of the daily allowance.
+What works?
 
-Carefully
+In practice, sealing the navel does not lead to good results, and often causes skin irritation navel area. Conservative treatment reduced the total massage, the front wall of the peritoneum, laid out on the stomach, the therapeutic exercise. Full body massage is performed masseurs, exercise therapy - physical therapy doctors. Parents can do massage the anterior abdominal wall: before feeding stroking stomach clockwise, then turn the child on his stomach, even lie down for 5-10 minutes.
 
-Do not get carried away with milk and sour-milk products in the following cases:
+Most umbilical hernia massage one win. In this case, the prescribed operation for suturing defect umbilical ring. A small incision is made above the navel in the skin folds, cosmetic seams thus making the scar is almost invisible. The operation is best done immediately as the fabric gradually loses its elasticity, and a small defect in the navel, not eliminated in childhood, becomes a large umbilical hernia in adults. Years later, she was inclined to infringement and frequent relapses. Therefore, navel hernia treated in childhood.
 
-    Weight gain greater laid this week. Discard fat milk and cottage cheese. Prefer less high-calorie dairy products. 
-    Worried about nausea, diarrhea, bloating after ingestion of milk. The explanation is simple: in the stomach lacks specific enzymes or they are not active enough. Lactose is not digested because of genetic predisposition. In nerascheplennom as it enters the intestine and fermented. In this case, discard the milk to dairy products. Discomfort will not occur after the yogurt and yogurt.
-    Dairy products are not able to raise a low hemoglobin - that is a fact. Milk few essential minerals - iron and copper. If the test results in the antenatal clinic showed anemia, must be present in the diet of meat, which is rich in iron.
-    Think about the menu because the milk is not compatible with many products. With him good neighbor grains, starchy vegetables, such as potatoes and sweet fruits and berries . Even with delicious bun milk does not "get along." No wonder our grandmothers told "eat milk", considering it a separate dish. Therefore drink milk after a few hours of ingestion. At a fractional power, which is very useful for pregnant women, as a snack is well suited cup of yogurt or sour milk.
+Mom Tips
 
-Choice of dairy products
+A number of recommendations to help cope with the disease:
 
-This yogurt is prepared to leaven using Streptococcus thermophilus and Lactobacillus bulgaricus. Production technology confirms the inscription on the number of lactic acid bacteria: 
-
-If it's not, then you have in the hands of yoghurt product. There are no bacteria, useful properties it is different.
-The plant produces sour-milk production in two ways:
-
-    Tank (western cuisine). Milk fermented in a large container. Then, it is stirred and poured into smaller containers, so it was convenient to experiment with taste and consistency.
-    Thermostat (Russian cuisine). Milk with ferment is poured into a glass or plastic container, and then fermented. fermentation process is in the bank. The finished product can not be put sugar and additives. Therefore simple carbohydrates and harmful substances in the sour cream and yogurt, manufactured thermostatic method, no. The product is different fat content.
-
-Tip! Milk can fix the chair, so eat dairy products. Yogurt drink only fresh.
-
+    Once a month old, often overturn the baby on his tummy. The path is so long until you get bored. It strengthens the muscles well.
+    The surgeon will recommend to take a course of massage, exercise will show that you need to make your baby home.
+    Try to create a comfortable environment so that the child did not cry and did not cry.
+    Keep an eye on the work of the intestine, avoid constipation. The best food for the baby - mother's milk . If the feed mixture, follow the instructions for its preparation.
+    Sometimes, the navel of the child being treated special plaster, but not all surgeons are advised to glue it. Therefore, to know the opinion of several doctors.
+    Come with your baby on examination at the appointed time. Then be sure of one of the techniques you will have to wait for the good news that the hernia was gone.
 
 
