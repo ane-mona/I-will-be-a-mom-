@@ -2,38 +2,73 @@
 
 Pregnancy, proper nutrition, preparation for childbirth, baby care
 
-Umbilical hernia 
+Can I take antidepressants during pregnancy?
 
-Many doctors do not consider umbilical hernia disease, they say that it is a defect that is responsive to correction. But for anxious parents is a problem of universal scale.
+Antidepressants during pregnancy have a positive impact on both if before conception were signs of obsessive fears and anxieties. After all, such a condition tends to worsen. But there is a downside.
 
-What is an umbilical hernia?
+The effect of antidepressants on Conception
 
-Affliction is a surgical pathology. It is found in every fifth child and every third premature baby. Minimum defect navel notice almost every pop-born baby. When he screams or cries hernial protrusion arises, which is alarming parents. They think that the child became restless because of an umbilical hernia or believe that it arose because of frequent crying .
+The body of men and women react differently to the action timoleptikov. Men taking the drug increases the risk of weakening of sperm motility, increases the number of abnormal sperm cells. They have every man, but antidepressants stimulates their development tripled. Moreover cells with damaged DNA appear due to the use of drugs for depression, regardless of their generation. In milder forms of disorders can do psychotherapy. Severe cases require regular intake timoleptikov. (  A survey of men infertility.  ) 
 
-But it is not so. Umbilical hernia belongs to the congenital flaws. The newborn was born with a defect already connective tissue in the umbilical region, in the first weeks of life, it is invisible. Only after some time (a month or two) mother notices a slight protrusion of the size of a pea or a nut, which sometimes increases when coughing, when crying or defecating. In some cases, the hernia sac gets part of the fat or bowel loops. Typically, they can be easily straighten back.
+After the abolition of the drug in women reduced chance of conception. But if a pregnancy occurs,
+possible deepening depression does not happen. Will help correct the state of SSRI antidepressants. The drugs belong to the last generation, so there are more gently than previous.
 
- Complications of hernia
+Plan pregnancy after doctors recommend antidepressants after three months. Moreover, removal of the drug must be gradual. This applies only mild forms of depression.
+(  Female infertility: what to be tested?  )
 
-Complication of hernia is a pinching or squeezing the contents of the hernial sac developmental disorders in the circulatory organs restrained up to necrosis of tissue. But prejudice are very rare. Therefore it is better to do without panic, but instead take an effective treatment. It happens that parents are much worried about the diagnosis of umbilical hernia, so do not ask the doctors, but just need to do something.
+The dangers of the use of antidepressants during pregnancy
 
-But hurry this is not necessary. If you follow the advice of the doctor, there is a high percentage of the likelihood that an umbilical hernia will pass by itself. As a rule, experts advise to wait until 5-6 years. If after this time is not a defect has resolved, the child operation is required.
-However, navel hernia may increase or infringement occur, infection and other complications - doctors will not delay in these cases. All the rest - showing conservative treatment.
+With constantly bad mood during pregnancy are taking medications with the approval and under the supervision of a psychiatrist.
+Refuse completely from the medication can not be, because it is fraught with increased depression, which badly affect the development of the fetus and can lead to its loss, stillbirth and infant postpartum depression.
+Timoleptiki depending on the generation have an impact on the fetus. The degree of influence is related to the trimester of pregnancy and with a view of the drug.
 
-What works?
+Types of antidepressants and possible damage:
 
-In practice, sealing the navel does not lead to good results, and often causes skin irritation navel area. Conservative treatment reduced the total massage, the front wall of the peritoneum, laid out on the stomach, the therapeutic exercise. Full body massage is performed masseurs, exercise therapy - physical therapy doctors. Parents can do massage the anterior abdominal wall: before feeding stroking stomach clockwise, then turn the child on his stomach, even lie down for 5-10 minutes.
+    SSRIs have side effects and lead to fetal malformations. However, the latter, even when using them for a long time is rare. Therefore, these drugs are prescribed during pregnancy are more likely;
+    Tricyclic drugs are allowed to receive. Previously, it was believed that this group of drugs has a negative impact on the development of the fetus in the womb of the limbs, but recent studies have refuted this view. Tricyclic antidepressants have a mass of side effects that are not seen in the preceding group;
+    MAO drugs are contraindicated during pregnancy because of the risk of heart attack;
+    IOZSIN administered when absolutely necessary. Some of them are contraindicated;
+    atypical antidepressants during pregnancy is not selected.
 
-Most umbilical hernia massage one win. In this case, the prescribed operation for suturing defect umbilical ring. A small incision is made above the navel in the skin folds, cosmetic seams thus making the scar is almost invisible. The operation is best done immediately as the fabric gradually loses its elasticity, and a small defect in the navel, not eliminated in childhood, becomes a large umbilical hernia in adults. Years later, she was inclined to infringement and frequent relapses. Therefore, navel hernia treated in childhood.
+Doctors prescribe antidepressants for pregnant safest:
 
-Mom Tips
+    Paroxetine.
+    Sertraline.
+    Citalopram.
+    Fluoxetine.
 
-A number of recommendations to help cope with the disease:
+1 term
 
-    Once a month old, often overturn the baby on his tummy. The path is so long until you get bored. It strengthens the muscles well.
-    The surgeon will recommend to take a course of massage, exercise will show that you need to make your baby home.
-    Try to create a comfortable environment so that the child did not cry and did not cry.
-    Keep an eye on the work of the intestine, avoid constipation. The best food for the baby - mother's milk . If the feed mixture, follow the instructions for its preparation.
-    Sometimes, the navel of the child being treated special plaster, but not all surgeons are advised to glue it. Therefore, to know the opinion of several doctors.
-    Come with your baby on examination at the appointed time. Then be sure of one of the techniques you will have to wait for the good news that the hernia was gone.
+Paroxetine pregnant in the first trimester is not indicated because it can cause:
+
+    heart disease;
+    abnormal development of the skull with premature closure of its joints;
+    defect in the skull bone to the lack of the brain;
+    Embryonic hernia.
+
+
+Citalopram first trimester leads to craniostenosis and anencephaly.
+Sometimes, in the first trimester prescribe fluoxetine and sertraline.
+
+2 trimester
+
+During this period, due to fluoxetine may be prolonged failure of the pulmonary circulation. Sertraline sometimes leads to the development of persistent pulmonary hypertension of the fetus, as well as fetal hernia and heart disease.
+
+3 trimester
+
+Citalopram is allowed to accept, but in some cases, the baby is able to do much harm, causing persistent pulmonary hypertension. When assigning the third trimester of sertraline having his characteristic side effects mentioned above.
+
+Recommendations
+
+Timoleptiki during pregnancy to take is possible, but subject to conditions:
+
+    take medication under medical supervision;
+    remember that the safest medications and SSRI tritseklicheskoy group;
+    to carry out reception in doses that do not cause pregnancy complications and reduce the impact on the fetus;
+    the first and third trimesters minimize dosage;
+    if possible, stop taking the tablets in favor of sessions with a psychologist or psychotherapist.
+
+Current drugs is efficient, but in order to achieve sustainable results, many of them require long-term use, that is not always shown in pregnancy.
+
 
 
