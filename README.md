@@ -2,73 +2,101 @@
 
 Pregnancy, proper nutrition, preparation for childbirth, baby care
 
-Can I take antidepressants during pregnancy?
+This useful salad ... 
 
-Antidepressants during pregnancy have a positive impact on both if before conception were signs of obsessive fears and anxieties. After all, such a condition tends to worsen. But there is a downside.
+During warmer months, nature presents us with an abundance of vegetables, fruits, herbs, so prepare appetizers and salads include as many seasonal products. This is an excellent opportunity to organize the unloading of the body on the results of the winter gluttony, cleansed of toxins, get the supply of energy from the generous portions of vitamins and minerals.
 
-The effect of antidepressants on Conception
+How to prepare a salad?
 
-The body of men and women react differently to the action timoleptikov. Men taking the drug increases the risk of weakening of sperm motility, increases the number of abnormal sperm cells. They have every man, but antidepressants stimulates their development tripled. Moreover cells with damaged DNA appear due to the use of drugs for depression, regardless of their generation. In milder forms of disorders can do psychotherapy. Severe cases require regular intake timoleptikov. (  A survey of men infertility.  ) 
+There is nothing complicated here. We just need to cut products, mix and fill with delicious and healthy dish is ready. To prepare the salad you can use any ingredients with dressing cope fantasy. Surely there is fresh carrots in the refrigerator, an apple, a clove of garlic, lemon juice, to this is added the raisins, a little salt and a teaspoon of vegetable oil - all the salad is ready.
+Some people prefer light salads made from vegetables, which stimulate the production of gastric juice, to prepare it to receive the main course. Other, more men recognize only fish and meat salads, delicate sinking in the stomach. And the summer - it's time for the beneficial of fruit salads who love everything from small to large.
+On a note! Most healthy salad will be those in which the vegetables are subjected to a heat treatment, since they retain all the nutritional richness.
 
-After the abolition of the drug in women reduced chance of conception. But if a pregnancy occurs,
-possible deepening depression does not happen. Will help correct the state of SSRI antidepressants. The drugs belong to the last generation, so there are more gently than previous.
+The refill?
 
-Plan pregnancy after doctors recommend antidepressants after three months. Moreover, removal of the drug must be gradual. This applies only mild forms of depression.
-(  Female infertility: what to be tested?  )
+Salad choices include refueling. In some cases they become the focus dish, giving it a unique taste. Mayonnaise is already too trivial, time to get rid of him. As charging may be: balsamic vinegar, olive oil or sunflower oil, kvass, juices of orange, lemon, pomegranate, cranberry, lingonberry. Suitable mustard, honey, milk and milk products, grated cheese, and a variety of ready-made sauces. Number of filling is chosen to suit individual needs. Suddenly, a bright sound in a salad added seeds or nuts, such as walnuts are the most useful.
+Manifested in the preparation of salad imagination, able to create a custom, unique and individual taste, making the dish really exquisite.
 
-The dangers of the use of antidepressants during pregnancy
+Georgian salad
 
-With constantly bad mood during pregnancy are taking medications with the approval and under the supervision of a psychiatrist.
-Refuse completely from the medication can not be, because it is fraught with increased depression, which badly affect the development of the fetus and can lead to its loss, stillbirth and infant postpartum depression.
-Timoleptiki depending on the generation have an impact on the fetus. The degree of influence is related to the trimester of pregnancy and with a view of the drug.
+You will need:
 
-Types of antidepressants and possible damage:
+    Walnuts - 60 g
+    Tomatoes - 4 pcs,
+    Cucumbers - 4 pcs,
+    Bulb,
+    Bunch of dill, basil, cilantro,
+    Garlic - 3 cloves,
+    lemon juice - 1 big spoon,
+    Balsamic vinegar - 1 large spoon,
+    Salt.
 
-    SSRIs have side effects and lead to fetal malformations. However, the latter, even when using them for a long time is rare. Therefore, these drugs are prescribed during pregnancy are more likely;
-    Tricyclic drugs are allowed to receive. Previously, it was believed that this group of drugs has a negative impact on the development of the fetus in the womb of the limbs, but recent studies have refuted this view. Tricyclic antidepressants have a mass of side effects that are not seen in the preceding group;
-    MAO drugs are contraindicated during pregnancy because of the risk of heart attack;
-    IOZSIN administered when absolutely necessary. Some of them are contraindicated;
-    atypical antidepressants during pregnancy is not selected.
+Preparation.
 
-Doctors prescribe antidepressants for pregnant safest:
+    Clean cucumbers cut into slices.
+    Cut into half rings onions and tomatoes.
+    Chopped fresh herbs add to the vegetables.
+    In a blender grind garlic, nuts, salt.
+    In the resulting mass add the lemon juice and vinegar, stir again. We look to refill was the consistency of sour cream, so if you want to dilute with water.
+    Pour vegetable sauce, stir.
 
-    Paroxetine.
-    Sertraline.
-    Citalopram.
-    Fluoxetine.
+Salad with feta cheese and raspberries
+need:
 
-1 term
+    A handful of raspberries,
+    100 g of feta,
+    2 cucumbers,
+    30 g pistachio
+    A little green onion,
+    200 g of salad mixture
+    1 small spoon of liquid honey,
+    2 bolshielozhki olive oil,
+    Half of a large spoon of balsamic vinegar.
 
-Paroxetine pregnant in the first trimester is not indicated because it can cause:
+Preparation:
 
-    heart disease;
-    abnormal development of the skull with premature closure of its joints;
-    defect in the skull bone to the lack of the brain;
-    Embryonic hernia.
+    Salad mix and vegetables and my obsushivayut.
+    Cut into thin slices cucumbers, shred green onions, coarsely chop the nuts.
+    Put in a container salad mix, cucumber, onion, mix with dressing.
+    We spread a green salad base, it crumble feta, sprinkle with raspberries and pistachios.
 
+Salad with tuna
 
-Citalopram first trimester leads to craniostenosis and anencephaly.
-Sometimes, in the first trimester prescribe fluoxetine and sertraline.
+You will need:
 
-2 trimester
+    Cucumber - 2 pieces,
+    cherry tomatoes - 10 pcs,
+    Olives pitted - 10 pcs,
+    Pepper - 2 pcs,
+    Iceberg lettuce - 1 bunch,
+    Tuna in its own juice - 200 g
+    Bulb,
+    1 large spoon of olive oil,
+    Half of a large spoon of balsamic vinegar.
 
-During this period, due to fluoxetine may be prolonged failure of the pulmonary circulation. Sertraline sometimes leads to the development of persistent pulmonary hypertension of the fetus, as well as fetal hernia and heart disease.
+Preparation:
 
-3 trimester
+    Clean the vegetables are cut so: cucumbers and peppers into strips, tomatoes - into four parts. Olives cut in half.
+    Wash lettuce leaves dry with a paper towel, tear the fingers.
+    Onions chop thin semicircles, marinate in a mixture of oil and vinegar. Soak 30 minutes.
+    Mix all the ingredients of salad.
 
-Citalopram is allowed to accept, but in some cases, the baby is able to do much harm, causing persistent pulmonary hypertension. When assigning the third trimester of sertraline having his characteristic side effects mentioned above.
+Salad with pears and cheese To prepare the salad will need:
 
-Recommendations
+    Cheese durum - 200 g,
+    Pear - 2 sweet,
+    Natural yoghurt - 2 small spoons,
+    Mustard - 1 small spoon,
+    Orange juice - 2 small spoons,
+    Walnuts, chopped - 2 large spoons,
+    Mint leaves.
 
-Timoleptiki during pregnancy to take is possible, but subject to conditions:
+Preparation:
 
-    take medication under medical supervision;
-    remember that the safest medications and SSRI tritseklicheskoy group;
-    to carry out reception in doses that do not cause pregnancy complications and reduce the impact on the fetus;
-    the first and third trimesters minimize dosage;
-    if possible, stop taking the tablets in favor of sessions with a psychologist or psychotherapist.
-
-Current drugs is efficient, but in order to achieve sustainable results, many of them require long-term use, that is not always shown in pregnancy.
+    Cheese grind using a float.
+    Pears Wash, remove the core, tough rind, cut into cubes.
+    Dressing made from yogurt, mustard, orange juice.
+    Ingredients should be packed in layers. The bottom of the salad bowl sprinkle 1/3 of the shredded cheese, then put a little pear cubes, sprinkle with nuts, pour dressing. The second layer follows a list of ingredients. The third time make out salad grated cheese, diced pears, nuts and decorate mint leaves.
 
 
 
