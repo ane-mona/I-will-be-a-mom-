@@ -2,64 +2,60 @@
 
 Pregnancy, proper nutrition, preparation for childbirth, baby care
 
-That you can not have a nursing mother? 
+Wardrobe newborn
 
-The baby was born and now every two or three hours wakes up to eat. Well, if the mother's milk he likes, and if not? Scarce must retrieve only benefit and not aches and allergies from breast milk. To this end, a nursing mother must take care of their diet. It is important to know which foods should choose and which to reject.
+Very soon, the baby is already born, and the expectant mother you need to buy many more important things! In particular, clothing for crumbs.
 
-List of hazardous products
+Dowry for a newborn should be purchased prior to delivery. Stock up on sets of new things to be enough once a year, because then the time on shopping trips will not.
+Modern pediatricians against diapering children. It is noticed that the child is not limited in his movements, fast-paced and physically active are curiosity. Therefore, the diaper hardly needed, but not so on sliders, tank tops and overalls, which are very useful. So, go for clothes for infants.
 
-Nursing mother can not eat foods that cause allergic reactions - obligate allergens. These include:
+What to buy?
 
-    chocolate and cocoa products;
-    citrus;
-    strawberries and strawberry;
-    nuts ;
-    seafood.
+Baby items are sold very tiny and beautiful, so it's hard to resist the buying them all. However, the baby is growing very fast, so it makes no sense to recruit the same size clothes. Enough to buy two or three items of each type. It should be remembered that the natural cotton clothing after washing will be somewhat smaller, and the diaper needs additional space. Before going to the store, make a list of necessary dowry. need:
 
-With care, limited to a small number, should eat vegetables and fruits
-in red, for example, tomatoes, bell pepper, red apples, and others. If your home has allergies of any kind, including non-food allergies, or the baby skin is constantly dry or worried sudamen , you must adhere to a strict diet. These signs point to a predisposition to allergic reactions of the baby.
-4-5 months of breast-feeding mother should avoid foods that cause flatulence in the intestines:
+    Four body;
+     Two Knitted jumpsuit;
+    A knitted hat;
+    Knitted socks;
+    Terry socks;
+    Two knitted blouses and one is warm;
+    Two pieces of sliders;
+    For walks in the autumn-winter period need crumbs:
+    Quilt or blanket in the stroller;
+    Envelope or overalls;
+    Warm hat and socks.
 
-    fresh cabbage and sauerkraut;
-    black bread;
-    beans;
-    milk;
-    grapes;
-    a lot of green apples.
+Body and knitted unitard will be very convenient for little kids and for mom. They are easy to put on, so like any kid, even the most capricious. Choice is made in favor of high-quality materials and fasteners. 
 
-The digestive system is imperfect newborn, so in the intestine often have pain - cramps. If a nursing mother will eat gas-forming foods, the problem will only worsen. Mom should not have a lot of raw fruits and vegetables because they have a lot of fiber, which puts a heavy load on the intestines and causes colic crumbs. ( Dill water from colic).
+Mix and match the child's clothes, putting on his sliders and blouses. Avoid sliders elastic, as it will injure the stomach, which is not yet fully healed. Blouse and overalls on the buttons come in handy at night. If there is a need for a dressing, it takes a little time. Unitard button located between the legs, there should be at least five. This allows you to quickly change the diaper even if a pipsqueak sleeping.
+Socks come in handy as soon as the toddler is born. Choose from soft rubber to avoid squeezing the legs.
 
-During breast-feeding do not eat food, badly affecting the taste of breast milk. Otherwise, you risk leaving crumbs hungry, because he can give up the breast. These products include garlic and onions, some researchers include in this list the asparagus and cauliflower. Your baby may not even notice the taste difference, but to hedge costs.
+Knitted hat is very convenient because it is able to "grow" with the child. We headgear should not be rigid ties. Warm blouse come in handy at home, if the room is cool, as well as collect the baby for a walk. Will not cause allergic reactions products from acrylic or fleece. On the walk will incidentally jumpsuit or envelope. Particularly comfortable legs in overalls-envelope. If it's cold outside harboring crumbs rug or blanket. How to dress the baby, when warm outside, see the article " Peculiarities of summer walks ."
 
-The last group of prohibited products for nursing mothers are those that contain nutritional supplements - colorings, flavorings, preservatives. Do not allow on your  desk meats, sausages, canned foods, convenience foods, fast foods, soft drinks, mayonnaise and various sauces.
+Overalls purchase two sizes larger. At first, the baby will be there to ride in a carriage, and a year later - he has to stomp.
 
-We know that it is harmful food for adults, but for the body of a tiny double.
-Why:
+Size charts
 
-    Additives difficult digested and excreted. Because of this, more hard working digestive system and kidneys .
-    Generally such ingredients are allergens, so the little ones cause allergic reactions. It was found that these products retain the liquid in the mother's body, which inhibits milk production.
+Each manufacturer of children's clothes - their sizes table. Usually the label has information on the amount of things that corresponds to the age and growth of crumbs:
 
-Not recommended to eat mushrooms, it's junk food, so it is difficult to digest and digest. Of course, you can omit a reminder of the dangers of alcohol and smoking. If you've poisoned your body, because it's like, now feel responsible for the health of the crumbs. There was a good reason to take care of her.
+    Size 56 fit newborn, whose growth is 50-58 cm,
+    62 are in three months, when children reach 59-64 cm,
+    68 - suitable chubby little boy of six months, its growth is 65 - 70 cm,
+    74 - for a nine-month, reaching 71 - 76 cm,
+    80 sizes are in the year when they reach 77 - 76 cm.
 
-Watch the reaction of the baby
+Tips for Choosing
 
-Allergies can cause whatever product. In this list, even ordinary Russian vegetables, fruits and berries, such as cranberries . If you notice a child's allergic reaction to the product, discard it. It should also limit the consumption of sweet, salty and spicy.
+Caps and hats, choose the size of the head. Remove measurements head circumference with a tape, to the obtained value to add 1-2 cm margin.
+Size choose, focusing first on the growth of the crumbs.
 
-What can I eat?
+We check the quality of the seams of clothing. They should be soft and not put pressure on the skin. Hardware elements (buckles, straps, etc.), Check the reliability of fixation to a pipsqueak could not tear them and hurt yourself. Do not choose clothes with rough appliqués and embroideries, which are on the inside could injure your skin.
 
-It may seem that a breastfeeding mother is not the product remains, which can be eaten. But this is only at first glance. The basis of the diet during breastfeeding - soups, cereals, dairy products. Meat and fish only in the stew, baked and cooked. Now is not the time to lose weight, animal fat should be present in the menu. Therefore, a sandwich with butter and cheese will come in handy.
+Ease of dressing. Children do not like to dress up, so wear comfortable clothing with buckles. The best are simple buttons.
 
-New diet certainly will seem bland and tasteless. If, instead of cooking to use a roasting dish will be much tastier. Seasoning can be green .
-Tip! Do not think that diet has become poorer and a lot of things have to give. Enjoy your present situation and not notice how time flies breastfeeding.
+Choose clothing of high-quality brands. They pay attention to color fabrics. The bright-colored tones are unlikely to lose form. Even bright prints do not fade and fade after a large number of washes.
 
-Expansion Policy diet
-
-At a time in the diet only add one new product. Because if the baby
-will arise an allergic reaction, it will be difficult to determine exactly which product has caused it. So we have to eliminate all of the components. Complex dishes, in which a lot of ingredients, can contain multiple allergens that trigger a baby in a violent allergic reaction.
-
-New products are introduced into the diet every 3-4 days, each time starting with a small portion. For example, you decide to try the kiwi, eat first half of the fruit. If the body tot he "did not notice", the next day, eat whole fruit. If, and this time everything went well, it is possible to conclude that the product does not cause allergies and can be administered in the diet. However, to increase the dose should also be gradual.
-
-If after 2-3 days a rash or peeling brown, dry skin, red cheeks and thin, greenish with mucus stool, then eat them to become possible only after half a year after the use of a new product on the baby's skin.
+Natural fabrics. Delicate baby skin is exposed to the emergence of allergies and diaper rash. So choose things from 100% natural and environmentally friendly materials, the best organic cotton. It allowed children to wear synthetic fiber - fleece (microfleece).
 
 
 
