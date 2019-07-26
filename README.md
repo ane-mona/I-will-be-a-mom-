@@ -2,62 +2,45 @@
 
 Pregnancy, proper nutrition, preparation for childbirth, baby care
 
-Deepest secrets
+From the complex to revitalize babble
 
-Woman, becoming a mother, already makes the feat, sometimes it happens even at the risk of life, for example, if she has a bad heart. Some diseases interfere with motherhood, as absolutely can not bear with them. Others allow for conception, but subject to compliance with all recommendations of the doctor.
+When a child sees an adult, he is animated, smiling back at his smile and even "talking": coo, "coos", whimpers. "Revitalizing complex" occurs in about 2.5 months and means that the baby is developing as it should.
 
-Three hospitalized
+Kid wants to play from an early age. When the mother comes to his attention, he begins to actively move the arms and legs, smile broadly. In the professional environment, this is called a complex animation, and the language of mums and dads "translated" as an invitation to have fun together. And they are happy to respond to the call, but later too lucky enough. Mom plays with the baby, thus proving her love for him. It's better gifts, hugs and verbal assurances are not so convincing to him.
 
-Women with heart disease, learning about her pregnancy, should always visit a cardiologist and take heart medications. Supposed to visit him:
+Familiarity with gestures
 
-    once a month, if the pregnancy of 20 weeks ;
-    from 21 to 32 weeks - every two weeks;
-    32 - every week.
+It is impossible to remain unperturbed when a reviving crumbs when it appeared. However, it is equally important to understand each other. This will help gestures. Scarce quickly grasps their essence, and a little later may have to repeat. For example, known to all, "Hello", "Goodbye!", "Come to me" and others that you can think for yourself, to communicate with crumbs on it accessible for him language. It will be very pleased to receive an answer from the crumbs. Sign language the child will learn faster if you will call at the same time the object and display a sign designating it.
 
-Pregnant with heart disease should be aware that it is waiting for three hospitalization: at 8-10 weeks, 28-30 weeks and two to three weeks before the birth. It should not be exposed to any contamination of infections and to prevent the development of anemia, as well as to monitor the weight gain, because the load on the heart muscle is doubled.
+The first months of preparing the ground for the emergence of speech. After all this time actively ripen speech areas of the brain. Speech therapists first year of life is called the pre-speech period. The basic foundation for the development of speech is put to a year, so it is very important to begin to talk, chat and play with your child at this age.
 
-Pain in the region of the heart due to other diseases
+Such different cry
 
-Healthy mothers also feel weak in the heart of pain and tingling, shortness of breath occurs. An edema and say nothing, though they occur in pregnant women in the evening, the same heart problems manifest themselves in the form of swelling in the morning. Symptoms of heart disease occur in the heat, before the weather changes, when in an uncomfortable position. Intercostal neuralgia, usually associated with the problems in the cervical or thoracic spine, may "haunt" in the heart, causing severe pain.
-The heart can be felt in diseases of the lungs, digestive system, blood vessels (vascular dystonia, etc.), Nerve. Against the background of these diseases the pain in my chest for a long time does not bother.
+Voice of the kid reacts to what is happening inside and around. If the baby is healthy, his cry and the call is long. The two, three months intonation cry becomes more diverse, as they reflect the state of the crumbs. Thus, the cry of hunger can not be confused with any other - he is insistent and shrill, and cry with discomfort sounds sluggish and inexpressive.
 
-There was a problem
+Gulen
 
-The onset of pregnancy can cause pain in the heart, even in healthy women. It happens:
+In the three months or so before the baby coo, stretching softly melodious sounds of "ah-ah-ah", "gu-in", "ah-ABM", "boo-y" and so on. Why does a child first says these sounds, and not some other? The fact that they are very simple to pronunciation and associated with sucking and swallowing. During Gulen arise joyful tone. The child begins gulit when a good mood, because he is well-fed, dry and have a good sleep.
+In four months of sound combinations are becoming more complex, "STA-bre", "khn", "pH", etc. It is interesting that all children gulyat equally, regardless of nationality.. During this period, it crumbs reflects the sounds of all languages of the world. Later it will only use sounds that are characteristic of the native language.
 
-    When preeclampsia occurs. It is characterized by increased pressure , the occurrence of edema, protein in the urine.
-    When anemia. Due to the low level of hemoglobin heart lacks oxygen.
-    With the development of cardiomyopathy. 
+Baby talk
 
-Last pregnancy complication appears in the third trimester or immediately after birth. Like symptomatology in heart failure: the intolerable pain in the heart, arrhythmia, tachycardia, edema, weakness in the body, shortness of breath. Cardiomyopathy is characterized by the sudden appearance, so it is impossible to predict. However, it is known that at risk are pozdnorodyaschie, pregnant women with overweight and high blood pressure. In order to successfully get rid of cardiomyopathy necessary time to carry out diagnostics (ECG, and ultrasound of the heart) and promptly begin treatment. Then even organic changes disappear within six months after giving birth, and all ends happily. All three are dangerous complications of pregnancy for both. Since a baby can suffer from hypoxia Also at high risk of developmental delay and premature births.
+In the fourth, the fifth month of Gulen gradually becomes babble. Sophomoric consists of syllable combinations, so the child imitates the speech of others. Peak babbling sounds of accumulation falls on the seventh month.
 
-Research complex
+Severe speech impediments inhibit the development of babbling and it appears with a delay. In severe hearing impairment, Gulen stops, so you need to visit a neurologist.
+With eight months to a year, and "piggy bank" new sounds almost not replenished. The child repeats different rhythmic chains several times implied, for example, "cha-cha-cha-cha," "ha-ha-ha", honing skills of pronunciation, while listening to yourself. Thus, the amount is gradually replaced quality. Appear the words with meaning, which means certain people, objects, actions. Pointing to the machine, said "BBC", "top" - walks, "boo" - falls, turning to his mother, he says "ma-ma" and so on..
 
-If even in healthy pregnant women develop health problems as heart disease symptoms for diagnosis is necessary to carry out the whole survey. "Serdechnitse" first appoint ECG and ultrasound of the heart, then may apply specifying techniques such as vector, phonons, and ballisto- polikardiografiyu. Simultaneously determining step is evaluated for the pathology, as well as to the level of adaptation disorders. To install it prescribed a lot of research and analysis.
+Unlike Gulen, babbling consists of the sounds of the native language. Healthy Child says emotionally expressive. Communicating with adults, pipsqueak learn to mimic their intonation, rhythm and tempo of speech, to preserve the general shape of the word.
+Therefore it is very important to maintain a set of revitalizing the baby, responding to his smile, constantly talk to the crumbs, developing his speech and later communicative.
 
-A high level medicine today allows women to virtually any cardiac ailments safely give birth. Today conducted a successful heart surgery even while carrying a child, for example, restore the mitral valve. However, it is still better to do during pregnancy planning so as not to provoke a miscarriage and premature birth.
+Important! Wake-up call is a lack of understanding of speech addressed to the child!
 
-To give birth without serious losses, should consider not only the disease itself, but also its phase and for the level of "habituation" the body to it. But the main thing - to find a cardiologist, who you could trust.
+Educational games it
 
-Tip! If there is a severe pain in the heart, open, unbutton clothes, lie down and ask relatives to call an ambulance.
-Important! "Serdechnitsam" can not get pregnant by accident!
+There are special game exercises that promote proper development of speech:
 
-Dangerous diseases
+"Who it?". The kid from the first days of life are interested in everything that is happening around. When will accumulate knowledge, ask him how to "say" cow, rooster, a tractor in his luggage. Then, put forth a riddle, emitting the sounds of "wow" meow "," th ", even guess who they belong to.
+"Monkey". Go with the crumbs to the mirror and draw faces. Show how when eaten honey licked the little bear cubs. Clicked his tongue, like a horse. Imagine that tab - swing, shake them in different directions. All these movements - different exercises articulation exercises. 
+Game "high-low" develops voice pitch and pronunciation onomatopoeic words. Her conduct in the street, taking with him a toy-mother with her cub. Hide and offer crumbs to find them. When will find, let describe their sound, they say, it is important to convey the tone (little mouse squeaks finer voice than his mother). And you will guess who tot found.
 
-There pathology incompatible with motherhood. And the doctors will insist on it. Of course, no one is forced to drag pregnant woman to have an abortion - decides always the woman herself. However, it is important to assess the degree of risk sensibly.
-
-Dangerous active rheumatoid process that turns acquired heart diseases. If in the first trimester comprehensive survey revealed that there is an exacerbation occurs endomiokardita or sluggish during rheumatic process, the left pregnancy becomes very dangerous both for the mother and baby.
-Even after the full recovery process in rheumatic heart saved another 8 months, so you need to be protected for another year. But if a woman wants to take a chance and keep the pregnancy, she should immediately begin a comprehensive treatment.
-
-Method obstetrics selected individually. Certain diseases involve use of only caesarean section, with other - are preferably natural childbirth with epidural anesthesia , using forceps or other instruments to help "free" from the most dangerous delivery periods - the second and third (and attempts placenta yield).
-
-Food for heart
-
-If the expectant mother a weak heart, you must:
-
-    Exclude from the diet of fried, salt, coffee and strong tea.
-    Drink not greater than 1.5 liters of water per day in hot weather conditions - no more than 2 liters.
-    Sweet to eat in small amounts.
-    Preference is given to products rich in calcium, potassium and omega-3 acids. These include bananas, nuts , dried fruits, broccoli, dairy products, sea fish , flaxseed and olive oil.
-    Take special vitamins.
 
