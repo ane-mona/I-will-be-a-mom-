@@ -2,45 +2,41 @@
 
 Pregnancy, proper nutrition, preparation for childbirth, baby care
 
-From the complex to revitalize babble
+Taking care of your skin baby
 
-When a child sees an adult, he is animated, smiling back at his smile and even "talking": coo, "coos", whimpers. "Revitalizing complex" occurs in about 2.5 months and means that the baby is developing as it should.
+Smooth, soft, healthy skin we compare with the infant. We take care of the skin of the baby, providing attentive care.
 
-Kid wants to play from an early age. When the mother comes to his attention, he begins to actively move the arms and legs, smile broadly. In the professional environment, this is called a complex animation, and the language of mums and dads "translated" as an invitation to have fun together. And they are happy to respond to the call, but later too lucky enough. Mom plays with the baby, thus proving her love for him. It's better gifts, hugs and verbal assurances are not so convincing to him.
+Newborn learns his mother is not only the voice and smell, are also important gentle stroking, who informs him that he is loved. But irritation with inflammation causes pain, as well as become a barrier to the vital information that comes to the baby from the outside. Therefore, until such time until the crumbs are not formed natural skin protection against moisture and harmful bacteria, mom will have to assume the role of "immunity".
 
-Familiarity with gestures
+Useful procedures
 
-It is impossible to remain unperturbed when a reviving crumbs when it appeared. However, it is equally important to understand each other. This will help gestures. Scarce quickly grasps their essence, and a little later may have to repeat. For example, known to all, "Hello", "Goodbye!", "Come to me" and others that you can think for yourself, to communicate with crumbs on it accessible for him language. It will be very pleased to receive an answer from the crumbs. Sign language the child will learn faster if you will call at the same time the object and display a sign designating it.
+Baby skin care will have to exercise constantly. Without some daily procedures do not kid. They are not only fine strengthen the immune system, but also bring pleasure to the infant. So, will give great benefit to air baths, which are necessary to arrange several times a day. To arrange this, remove all the baby clothes, including a diaper. After that, it's hard not to notice the joy appeared crumbs from his every movement. He feels free and actively moves arms and legs, the skin at the same time breathing, and the moisture evaporates instantly.
 
-The first months of preparing the ground for the emergence of speech. After all this time actively ripen speech areas of the brain. Speech therapists first year of life is called the pre-speech period. The basic foundation for the development of speech is put to a year, so it is very important to begin to talk, chat and play with your child at this age.
+The baby should be bathed daily. Only the first time, gel and liquid soap, use twice a week, otherwise the skin will be overdried. Means add the bath, stir with water until foaming. Every crease on the body of the child should be washed by hand. Back, stomach, arms and legs, rub with a soft sponge. Complete the procedure by pouring clean water to wash off the baby's body soap, otherwise gentle on baby's skin irritation appears. How to bathe a baby with allergies?
 
-Such different cry
+Common problems
 
-Voice of the kid reacts to what is happening inside and around. If the baby is healthy, his cry and the call is long. The two, three months intonation cry becomes more diverse, as they reflect the state of the crumbs. Thus, the cry of hunger can not be confused with any other - he is insistent and shrill, and cry with discomfort sounds sluggish and inexpressive.
+Leather baby reflects his state of health, so carefully monitor her condition. If you experience redness, dryness or rash - immediately take action!
 
-Gulen
+Nappy rash or irritation on the ass can appear due to wet diapers, "adult" washing powder, at the wrong time and not by the rules of introduction of complementary foods.
+What to do? Before changing the diaper thoroughly rinse the ass, sex organs and dry with a towel, dabbing the moisture (to rub it is impossible). You can use a damp cloth and then dry.
+Diapers changed every 3 or 4 chasa immediately after the baby is released intestine, otherwise the contents will start to corrode skin. Suppress the urge to put on crumbs oilcloth panties - in their skin does not breathe. Get the children's clothes made of natural fabrics and wash only children's powders. What kind of clothes is better to buy for the baby, see the article " a newborn wardrobe ."
 
-In the three months or so before the baby coo, stretching softly melodious sounds of "ah-ah-ah", "gu-in", "ah-ABM", "boo-y" and so on. Why does a child first says these sounds, and not some other? The fact that they are very simple to pronunciation and associated with sucking and swallowing. During Gulen arise joyful tone. The child begins gulit when a good mood, because he is well-fed, dry and have a good sleep.
-In four months of sound combinations are becoming more complex, "STA-bre", "khn", "pH", etc. It is interesting that all children gulyat equally, regardless of nationality.. During this period, it crumbs reflects the sounds of all languages of the world. Later it will only use sounds that are characteristic of the native language.
+Sudamen occurs most often due to the fact that the crumb is too hot and sweating. She appears fine red rash behind ears, armpits.
+Get rid of it by using baths with infusions of herbs. Per liter of boiling water for three big spoons of chamomile and succession. Brew grass and let it brew, strain and pour into a full bath. Plus, this treat skin baby powder. Apply on your palm, then spread over the skin. With such careful care sudamen disappears in 2-3 days.
+Sometimes the rash increases, then the reason is different and it is necessary to address urgently to the doctor!
+To avoid skin problems baby, try not to coddle him, and follow the optimum air temperature in the nursery should not be hot.
 
-Baby talk
+Selection of cosmetics
 
-In the fourth, the fifth month of Gulen gradually becomes babble. Sophomoric consists of syllable combinations, so the child imitates the speech of others. Peak babbling sounds of accumulation falls on the seventh month.
+Before purchasing agents consider a list of its contents. The label should not be present colorants and preservatives. For a child are allowed only natural ingredients: herbal extracts, natural oils, water emulsions. They soothe, reduce inflammation, do not irritate, prevent the appearance of dryness and allergic rashes.
 
-Severe speech impediments inhibit the development of babbling and it appears with a delay. In severe hearing impairment, Gulen stops, so you need to visit a neurologist.
-With eight months to a year, and "piggy bank" new sounds almost not replenished. The child repeats different rhythmic chains several times implied, for example, "cha-cha-cha-cha," "ha-ha-ha", honing skills of pronunciation, while listening to yourself. Thus, the amount is gradually replaced quality. Appear the words with meaning, which means certain people, objects, actions. Pointing to the machine, said "BBC", "top" - walks, "boo" - falls, turning to his mother, he says "ma-ma" and so on..
+Pungent odor when you open a cosmetics demonstrates the use of flavorings, and they provoke irritation of the delicate skin of the crumbs. Unpleasant smells overdue cream, so check the release date of the product.
 
-Unlike Gulen, babbling consists of the sounds of the native language. Healthy Child says emotionally expressive. Communicating with adults, pipsqueak learn to mimic their intonation, rhythm and tempo of speech, to preserve the general shape of the word.
-Therefore it is very important to maintain a set of revitalizing the baby, responding to his smile, constantly talk to the crumbs, developing his speech and later communicative.
+Newborns are not suitable bar soap because it contains alkali which attack the baby's sensitive skin. For bathing the baby, choose a liquid soap or cream soap neutral. Funds created under the special formula, so do not schipyat eyes.
 
-Important! Wake-up call is a lack of understanding of speech addressed to the child!
+Powder, baby oil or cream under the diaper choose those that are allowed to care for the skin remains from the first days of life. A shampoo or foam for swimming - with the words "suitable for everyday use."
 
-Educational games it
-
-There are special game exercises that promote proper development of speech:
-
-"Who it?". The kid from the first days of life are interested in everything that is happening around. When will accumulate knowledge, ask him how to "say" cow, rooster, a tractor in his luggage. Then, put forth a riddle, emitting the sounds of "wow" meow "," th ", even guess who they belong to.
-"Monkey". Go with the crumbs to the mirror and draw faces. Show how when eaten honey licked the little bear cubs. Clicked his tongue, like a horse. Imagine that tab - swing, shake them in different directions. All these movements - different exercises articulation exercises. 
-Game "high-low" develops voice pitch and pronunciation onomatopoeic words. Her conduct in the street, taking with him a toy-mother with her cub. Hide and offer crumbs to find them. When will find, let describe their sound, they say, it is important to convey the tone (little mouse squeaks finer voice than his mother). And you will guess who tot found.
+Try to purchase cosmetics for the newborn in pharmacies or specialized stores.
 
 
