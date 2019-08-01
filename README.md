@@ -2,80 +2,120 @@
 
 Pregnancy, proper nutrition, preparation for childbirth, baby care
 
-The reasons for poor sleep newborns 
+Heparin ointment for hemorrhoids: instructions for use 
 
-Many of the children to three months is already able to sleep all night. Therefore, the child can stay in a private room. But if he often wakes up, you need to find out the reason why he had disturbed sleep.
+The most ideal one for withdrawal signs outer varicose vein is Heparin anus ointment. When hemorrhoids this drug successfully cope with the itching, burning and soreness, relieves swelling inflammation, helps to restore damaged skin.
 
-Baby Monitor
+Types of hemorrhoids
 
-Today, parents use baby monitor that helps monitor the baby. With it is possible to sleep better, without having to worry about it and listening to every rustle. In a child's room set flow transmitter, and you are a block receiver. When the baby starts crying, the transmitter is activated and sends a signal to the receiver. Crying baby hears the mother, even if located 90-300 meters. In the absence of electricity proceeds baby monitor is powered by batteries. In any case, when using the baby monitor, you will hear a baby cry and be able to react to it.
+External hemorrhoids is an enlarged cavernous formation located outside. Hemorrhoid comes from advanced varicose plexus outside the rectum.
 
-Important equipment
+Disease external type to be distinguished from the internal, in which the nodules extend outwardly. Varicose formation in severe illness inner type do not consist of the skin and rectal mucosa.
 
-In our high-tech age, people have come to trust a lot of equipment. Turn and children. Mom finds out that you need to run to the fumes in time with the help of an electronic device - the baby monitor. This device can significantly make life easier for the modern mom. It can without worries about your favorite crumbs to absent himself from the infant while sleeping or playing games in the arena. Through the parent unit will do all the sounds that makes a child. 
+Symptoms of external localization of the disease is rarely disturbed patients in remission, as a rule, do not appear bleeding. However, in the period of exacerbation there is a sharp pain, swelling, a person decreases the quality of life.
 
-Particularly sensitive models can even transmit sound breathing crumbs on which the mother finds out if her baby is sleeping. Thanks to my mother the baby monitor will time not only in domestic affairs, but also for themselves. For many parents appreciated the benefits of baby monitors. The device is included in the list of the most necessary purchases along with disposable diapers, which had also been the "know-how".
+In addition to these symptoms occur the following negative symptoms of the disease:
 
-Tip!Music by Tchaikovsky, Mozart, Grieg and dolphin sounds and the singing of birds is very soothing babies. Purchase CDs and play them before going to bed.
-From what can be a restless sleep?
+    itching and heat in the perianal region;
+    inflammation and swelling of the nodules;
+    pain;
+    bleeding (rare);
+    appearance near the anus elastic cones, the size of which depends on the stage of the disease.
 
-Colic, flatulence
+Varices exterior veins of the anus is different from the type of pathology of internal lack of problems in diagnosis, as amended cavernous formation seen during the inspection.
 
-Often occur in the newborn colic, which are the cause of poor sleep. Pain from them does not give the baby to calm down. If you are breast-feeding crumbs, you need to revise your diet. Diet nursing mothers should not contain foods that trigger bloating the child. If the baby is eating milk adapted formula may need to be replaced. The final word in this case is up to the doctor.
+Causes of illness
 
-Baby bad sleep capricious, and even at the breast? Perhaps the blame cramps - sharp pains in the intestines, resulting due to trapped air. To gases out and relieve the condition, before each feeding newborn lay on a hard surface belly down. After eating wait when srygnet excess air, for this purpose, hold the crumbs vertically.
+All types of hemorrhoids there are the same - on the basis of a congenital or acquired venous insufficiency. The walls of the veins were too weak to cope with the blood circulation. Because of this it happens congestion, particularly in the pelvic area.
 
-The sleeping child on his stomach turn over, even if it srygnet, it did not disturb. In this position, abdominal pain is not as strong.
+Yet predisposition to ailment does not mean that the disease process can not be avoided. Hemorrhoids occur under the following factors:
 
-If this problem is already there, but you still remain concerns about his restless sleep, possibly, all business in his temperament. Observe how often the baby wakes up at night and how to behave after waking. This will help to better understand it and to adjust the sleep mode at night. Give the kid, and along with a tranquil night.
+    straining due to constipation, resulting in venous congestion due to the overflow of blood increasing in size.
+    reduced physical activity, when a person is forced to stay a long time in a sitting position (lack of exercise).
+    malnutrition with a predominance of fatty, salty, spicy, smoked foods, which stimulate blood flow to the abdominal organs.
+    smoking.
+    getting infections.
+    stress.
+    inflammatory and neoplastic processes in the liver and intestine.
+    activities associated with excessive exercise.
+    childbearing and childbirth, because at that time many women experience in the position of having a bowel movement problems, and therefore runs the pathological process. Childbirth - an ordeal for the body, so they only worsen the situation.
 
-Tip! If there is a specific need, give up pharmacy funds to eliminate colic. It is better to use dill infusion .
+ Each factor or its synthesis increases blood flow to the cavernous formations. A venous vessels are weak, so some blood remains and leads to stagnation, that is, to the hemorrhoidal nodules.
 
-Wet diaper
+The choice of drug to treat
 
-Parents need to be as sensitive to all the desires and discontent child. Do not be offended by the touchy and angry cry-baby, better take a look and listen, learn to understand it. Pipsqueak certainly uncomfortable, so wants you to pay attention to him, and for him the most affordable way to send a signal - crying . 
+Ointment hemorrhoids external use - a drug with local action. It is intended to remove the symptoms of the pathological process. Candles for external hemorrhoids are not effective, that is not true of ointments. Recent quickly and deeply penetrate the skin, the active components begin to affect as much as possible soon.
 
-For example, a baby's skin is irritated by the diaper, that you will not immediately notice. Redness at first may not be, but there is a feeling of itching that are very concerned about crumbs. Later, come and rash with redness. Where did the irritation?
+Ointments of hemorrhoidal nodes are divided into categories depending on the active components of the composition. Conventionally, such groups are distinguished:
 
-Under the disposable diaper is continuously heat and humidity, which is excellent breeding ground for harmful bacteria. If diapers all the time to use, the baby's skin will experience constant stress. It becomes a target for attack of microbes that are absorbed into the diaper together with the secretions from the body. In the skin, its uppermost layer contains nerve endings that respond to a stimulus and inflamed. Symptom is itching, which can not be seen, but can only be felt.
+    Anticoagulants. Medicines of this group are struggling with blood clotting, preventing blood clots formed. The funds are a part of the active substance - heparin. For drugs in this category are primarily heparin ointment. external hemorrhoids Instructions for use states that it is necessary to apply a thin layer to the affected area (1 g of the surface with a diameter of 3-5 cm). Followed rub gently massaged until completely absorbed. The procedure is repeated every day for 2-3 times before the disappearance inflammation. Before application of the ointment, the anus region need to wash with warm water by using soap. Usually treatment for external hemorrhoids lasts 3-7 days.
 
-Mom can learn about the problem only on the behavior of the child. To do this, you need to watch him. He may cry, groan, sleep badly, that is in need of the care of his skin.
 
-Biorhythms newborn
+    Coagulants. These drugs, on the contrary, promote blood clotting to stop the bleeding hemorrhoids. The best-known drugs - Relief and Relief Advanced.
+    Venotoniki. Increase the tone and strengthen the membrane of the capillaries and veins, which helps to reduce inflammation and reduce tissue swelling. These include Procto-Glivenol, Troxevasin.
+    Immunostimulants. Activate the local immune system, which prevents infection of the tissues and complications. Widely used stimulant drug Posterisan local immunity.
+    Anti-inflammatory drugs. Ointment composed mostly have a glucocorticosteroid hormone ingredients. They effectively relieve inflammation and swelling. These are drugs like Aurobin, Proctosedyl, Ultraproct.
+    Antiseptics. In this category are preparations outdoor exposure with strong disinfectant and antiseptic properties. For example, Proktozan, Levomekol, ihtiolovaya ointment Bezornil, Vishnevsky ointment.
+    Homeopathic remedies. Ointments are used on external hemorrhoids, in the composition of matter at the minimum level, contribute to the restoration, healing, local protection. Among them Eskuljus ointment Fleming.
 
-Sometimes the kid raises his mother several times per night than makes to the usual way of family chaos. When he sleeps little, it affects their health negatively. As a dream - one of the major factors that have a beneficial effect on their physical and psycho-emotional development. In the dream, the body is resting and growing, so that a child gains strength to explore the world.
+This classification is arbitrary, since most drugs include many components acting comprehensively. So before you treat thrombosis yourself, you need to consult a doctor. He will pick up the necessary means, and most likely it will be a comprehensive approach to the problem.
 
-Scientists have proven that faster is added to the height and weight neonates whose sleep better. Dream of growth rates of approximately 43% superior growth performance during waking day. And according to recent studies, we can conclude that the newborn in a dream, even learning. They actively absorb the sounds and words in a shallow stage of sleep.
+Effective ointment on foreign issues
 
-Many parents are concerned about the interrupted sleep their babies. It is necessary to draw a clear line between poor sleep and individual biorhythm. Newborn sleeps as much as you need it, and the body should not interfere with his schedule. Because it threatens the difficulties in adapting to the daily rhythm.
+Treating hemorrhoids holds a doctor. Only an experienced professional can choose a safe and effective drug, taking into account contraindications and stage of disease. For example, hormonal ointment on his own appointment can not be used because the uncontrolled use threatens long-term adverse consequences.
 
-However, it should be wary if the baby sleeps for long and to this are added:
+You should know that the ointment hemorrhoids only element of integrated impact, which includes medicines, the reception of which must be combined with proper diet and optimal physical activity.
 
-    anxiety;
-    excessive physical activity;
-    capricious behavior;
-    causeless multiple calls.
+The pharmaceutical market offers a variety of products from this problem. They have a variety of therapeutic effects. It is necessary to examine the effect of each of them to understand what effect will a certain drug. List of ointments for hemorrhoids is as follows:
 
-In this case, you must look for the causes and take action.
-If, before the laying bed, mom did everything right, that is:
+Heparin ointment
 
-    night bought;
-    attached, emotionally communicated and fed nourishing;
-    He did the right hygiene;
-    sweetly lulled.
+Widely known medicament to treat external hemorrhoids. As part of the active substance - heparin, it prevents the formation of blood clots. Also there is benzocaine, which does not allow to feel pain, and benzyl nicotinate, a penetration of the other two components of the fabric.
 
-But pipsqueak still can not fall asleep or wake up often and capricious. Then you need to seek advice from a neurologist.
+Ointment for external use advised hemorrhoids, especially in the case of venous vascular thrombosis threat. Apply the agent may, if there are no contraindications:
 
-How much should a baby sleep:
+    Hypersensitivity to the components;
+    of skin necrosis;
+    reduced platelet counts;
+    tendency to bleeding;
+    first trimester of pregnancy.
 
-    From one month to two - 19 hours.
-    With three to four - 17-18 hours.
-    Between five and six - 16 hours.
-    From seven to nine - 15 hours.
-    Ten to twelve - 13 hours.
+Typically, the drug is transferred without any problems, but in some cases, possible:
+bleeding sites, allergy as pruritus and urticaria components on heparin ointment.
 
-Night supplementation
+Instructions for hemorrhoids this drug introduces patients to its rules of use. Applied thinly to the diseased area 2-3 times a day. If the problem more than the average, to the nodes in the night you can make a compress of gauze soaked vehicle. The duration of treatment prescribed by a doctor, but not more than two weeks, because otherwise any unintended consequences.
 
-The child may wake up at night to eat. If the mother is breastfeeding, you should be sure to make it to her.
-When artificial feeding will help bottle with the mixture. If a family night awakening was associated with famine baby, soon again return to your home quiet and you can sleep.
+The last thing you need to report this preparation - it is about its price. It belongs to the budget funds, because the cost about 50 rubles.
+
+Gepatrombin F
+
+Another means of anticoagulants effectively fighting the formation of blood clots, as well as opposing inflammation is gepatrombinovaya ointment.
+
+The medicament several active components. Heparin prevents blood clotting, prednisolone hormone reduces swelling and inflammation, vascular wall lauromacrogol glues. Effective against external hemorrhoids type venous thrombophlebitis accompanied by vascular lesions of eczematous skin and fissures. Restrictions on the use:
+
+    local intolerance to the components of the formulation;
+    perineal infection by pathogenic bacteria;
+    tendency to bleeding;
+    lesion organism bacteria causing tuberculosis, syphilis;
+    oncology skin.
+
+If there is a hypersensitivity to the drug, allergic reactions such as blisters and itching. With prolonged use can cause reddening of the skin.
+
+During acute illness means should smear the morning and in the evening after the act of defecation. After achieving the positive effect of the frequency is reduced to one half.
+
+The cost of medication by an average of about 200 rubles.
+
+Relief Advance
+
+Means complex effects. Thanks to Shark fat composed heals cracks and stops the bleeding, but at the expense of the anesthetic benzocaine reduces the severity of pain. The drug is prescribed for external hemorrhoids with severe pain. Also it is used when the cracks and erosion of the anus.
+
+Do not use the medication:
+
+    at thromboembolism;
+    at low levels of granulocytes in the blood.
+
+Allergic reactions to components of the drug lead redness, itching, rash.
+The drug is applied four times a day, morning and evening, and after a bowel movement. Ointment lubricate the damaged portions of the anorectal area.
+The medicament is expensive enough, it costs about 450 rubles.
+Unlikely to cause allergies oil walnut hemorrhoids
 
