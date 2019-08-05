@@ -2,49 +2,79 @@
 
 Pregnancy, proper nutrition, preparation for childbirth, baby care
 
-Bathing the baby with allergies
+Duty skeet
 
-If the baby's skin is prone to sudden rashes, you must take it seriously and pay particular attention to hygiene.
+You do not know which gift to his wife on March 8? Take on the role of kitchen duty! For you - a trifle, but nice to be loved.
 
-Causes of allergies
+Reasons to become a duty skeet
 
-For some reason, the delicate skin of the baby appear redness, peeling and pimples, it will be known only after referral to a specialist. As a rule, they are due to a genetic predisposition, if one parent is allergic. It is also bad for health and cause allergies improper diet breastfeeding mother or incorrectly matched mixture. Not welcome fried, smoked, fatty meals and fresh bright colored vegetables and fruits. Allergic rashes may occur as a result of late introduced complementary foods .
+There are several reasons why you should become a duty in the kitchen March 8:
 
-Aggravates allergies wrong skin care . However, to make a difference in our power! The doctor will prescribe antihistamines and support the mother the baby's skin hygiene.
+    Every day, a woman has to stand at the stove, and she was very tired from this obligation. So she gladly pass the baton to her husband. At least for one day.
+    The future mother is often tormented by toxemia . In this state, to prepare a holiday dinner, especially if they come to visit - a real meal.
+    Many representatives of the stronger sex like to cook and show inventiveness in this field. It is no coincidence chefs usually always men become.
 
-Bath Available
+In general, today you will have the opportunity to excel: to relieve his wife by taking care of the preparation for the holiday, and at the same time to surprise her guests and demonstrating outstanding creativity. Forward!
 
-The most common mistake of inexperienced parents is the desire to do everything at
-maximum. For example, many mothers in the tub pour hot water, so that the child is well, "bosh", because of which, and the procedure is time-delayed.
+Her surprise ... a spectacular serving
 
-    Temperature. 
+The theater, as you know, begins with a hanger, and the holiday - a holiday table. On the day of March 8 it can be done by spring happy and original. Therefore welcome:
 
-Under the influence of hot water heart experiences an additional load, the internal organs are working worse, exacerbated by the skin condition. It is also a bad influence and a long stay in the bath.
-The water temperature should not rise above 37.5 degrees, less than a year if the crumbs. A child who turned this line, can swim at 29 degrees.
-Duration bathing - no more than 10 minutes. To this time, "no sleep", get an alarm clock, better call in a low, so as not to scare the kid. The water temperature in the bathroom test elbow or a thermometer. When you are ready, you can take a bath!
+    Unusual serving dishes
 
-    Medicinal herbal teas
+It is not necessary to routinely spread holiday Olivier salad and vinaigrette in. A good idea would be presentation of meals in the form of eight - as a favorite not forget on what occasion celebration. Take a wide flat dish and put on it two glasses close to each other. Arrange the salad around them "snake" - turn eight. Now pull cups - digitally holes appeared.
 
-Usually, children love to splash in the water, so the baby will enjoy herbal baths. However, here too there are nuances, without which it will not win dermatitis.
+    flowers
 
-Before filling the tub for bathing the child with allergies, it must be thoroughly cleaned. The best disinfectant in your case is baking soda. Pour a little on the sponge and wipe with a good bath, then thoroughly rinse with hot water several times.
+ This is a mandatory attribute of the spring holiday. They are not only alive, but ... edible. Make the "rose" of cucumber, tomato, boiled carrots and beets. Cut the vegetables into thin slices - it will petals. Put them in the shape of a flower: the biggest - base, plug them into a salad for design reliability. Smaller circles are a bud, their spread in the middle.
+ 
+ Boil the eggs and turn them into "tulips". To do this, remove them from the shell and touch up beet juice in lilac color. Incise each egg crosswise and "tulip" slightly open, as if he just got a flowerbed. For more convincing naturalness and flower garnish with fresh herbs - parsley and dill.
 
-Until that time, until the crumbs will not last the navel, it is better to use boiled water bath. When the wound heals, draw water from the stationary filter deep cleaning, if the water quality of tap water is poor.
+    Cute little things
 
-Previously disinfectant for water was potassium permanganate (potassium permanganate). Today it is no longer used, the doctors found a replacement - the broth succession. It's a good baby skin protection against malicious bacteria.
+Decorate festive meal "ladybug", made of cherry tomatoes. Tomato cut in half, complement black olives from which the cut head and foot black dots.
 
-Regularly bathe the child with allergies to herbal decoctions. Pour boiling water (0.5 liters) 50 g of succession, chamomile or sage, leave for 3 hours in the lid. Pour the infusion into the bath and stir.
+She will have to taste ... healthy food
 
-Do not rub the sponge baby, even if it is very soft. Irritated skin will react to this bad. Also, do not give up on it entirely. Dip a sponge in warm water and squeezing out, spray the exposed areas, the exception - face. The child will be nice and not cold.
+During the preparation of the festive table in honor of March 8, at all times, remember that you are trying for the expectant mother. Therefore, food should be not only beautiful and delicious but also healthy.
 
-    Friends Swimming
+    It is not necessary to cook salty, fatty, smoked - they cause swelling and a scolding from a doctor.
+    Salad season with mayonnaise instead of low-fat sour cream or light yogurt without sugar.
+    Sweet drinks replace of tea or lemon balm mint. If a spouse suffers from a toxicosis, drink better not to find, because it reduces nausea and heaviness in the stomach.
+    On the festive table is not the place pork. It is better to cook the dish of veal, rabbit or turkey. You can bake the fish in the foil, sprinkle it with lemon juice.
+    Cakes and pastries wife does not offer much healthier to eat dried fruit, candy or marmalade. Treat her homemade dessert.
+    
+She was like ... clean kitchen
 
-Of course, the kid with pleasure takes with him into the bath duck, fish, frog, because with them more fun to splash and fun to learn new things! But there is an important point. low quality toys can cause allergies, which also applies to those that are not designed for swimming. The best are the little animals with rubber indication that is intended for children up to three years. They do not hurt, and will bring joy.
+Remember that after the holiday have to clean the kitchen. When on duty, so to the end! Arrange not just cleaning and EKOuborku - Prove that you think about her health. Can:
 
-Skin Care Products 
 
-The child with allergies all the tools you need to choose carefully. When buying pay attention to the information on the term of validity of foam for bathing, lotions, dusting powders. They are bought in accordance with the age of the child with allergies, as well as labeled "hypoallergenic." If the "taste" is allowed on the trading floor, be sure to open the cover means and check whether there is a smell, color. If not, then the harmful components such as fragrances, dyes, there is a minimum.
+    Wash the dishes mustard powder. She cleans plates and pots and it is completely safe - does not cause allergies, as advertised funds.
+    If the cups remained plaque from tea, wash them with baking soda.
+    Oven where baked fish or meat, wipe cloth soaked in a solution of water and vinegar.
 
-But even after the purchase of an ideal means it's worth to play it safe. Spend test: wrist baby soap, leave for two minutes and rinse. If there is no reaction, then you can use.
-No need to purchase several different creams or shampoos. If you have any allergies, you do not understand what means was the reason for the negative response.
+The result was a clean kitchen and without the use of chemicals!
+
+Recipes healthy meals 
+
+On March 8 holiday table cook healthy and tasty dishes, such as the following.
+
+Rolls of turkey
+Turkey, cut into pieces, repel both sides, season with salt and brush with mustard. Slices of roll tube and tie a thread. In a frying pan fry the rolls and reload in a saucepan. Add water, sour cream and salt. Let boil for about 30 minutes over low heat. Serve with chopped greens.
+
+Baked pears
+
+Pears, cut in half lengthwise, remove the core and bake in a well-heated oven for
+15 minutes. Chilled pear garnish with berries. Suit frozen: cranberries , cherries, strawberries. You can use the jam.
+
+Lemonade
+Lemon squeeze juice into a glass of boiling water omit 8 tsp sugar, connect together and add a liter of cold water. Serve in a transparent jar, the contents of several decorating cucumber slices.
+
+According to statistics, men her lover on March 8 presented:
+47% - flowers,
+33% - sweets,
+25% - cosmetics or jewelry.
+
+Only 4% take on the burdens of everyday life. Follow their example, as domestic help for the holiday March 8 will please more candy.
+
 
