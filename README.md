@@ -2,68 +2,31 @@
 
 Pregnancy, proper nutrition, preparation for childbirth, baby care
 
-What to think during childbirth?
+Moms-grandmother
 
-Afraid of giving birth - this is normal. But fear, along with other negative emotions, often hurts, especially when it comes to such important matters as the birth of a person. Try to collect thoughts and concentrate on the essentials to help itself.
+It is impossible to deny the fact that many of the usual things change with the birth of the baby. First and foremost, we are beginning to try on new roles - we become moms and dads, and our parents - and grandparents.
+Our parents are already included in the age expectations grandchildren would try
+realize their desires, they hoarded inside themselves for a long time. In the Russian tradition of the family assumed that the education of children engaged mother and grandmother, and males are slightly suspended, plunging headlong into the job and about the family providing care to all necessary. Therefore I'd like to talk about the relationship of newly mothers and grandmothers, as they are often faced with a lack of understanding.
 
-Have pity on me, Heating ...
+Kuta or not?
 
-Most women are afraid of our country's birth and it has become included in the national culture. If a woman expresses her fear of open, then she sympathize, understand and criticize her for fear no one in the head does not expect dramatic changes prihodit.Odnako woman giving birth in the hospital, when supporters of relatives and friends is replaced by the medical staff. But their task does not include listening to anxiety and sadness - they need to carry out their difficult work (see, because man is born a joke!) Distract their doctors are not particularly disposed to the lyrics, and the expectant mother remains comforters..
+ The conflict between generations, usually begins to manifest itself in the first months after birth. Swaddle or not swaddle? Sleep with your child, or he should have his own bed? Kuta or temper? Breastfeed or a mixture? What is needed mode and whether it is necessary? Use diapers or not? New mom asking ourselves these questions every day, and there are more and more each day. So arranged that young parents attach great importance to the events occurring in the infant's life, and build your life around a child who is not only the center of the family universe, but also a bone of contention.
+ 
+ Why is it that grandmothers and mothers are different views? Firstly, because of the age difference. Our parents operate information thirty years ago, when they lived in completely different conditions and had children by Spock. Science, medicine, the production of goods for children and parents do not stand still, held annually every new research and discoveries made in the field of pediatrics, psychology, innovative materials, etc. And it turns out that we ask for good advice to her grandmother, and she teaches us to tightly swaddle, dopaivat some water and do not take on his hands, "yell and stop."
 
-And then it was during childbirth, when it is the very event that it so worried woman remains alone with their fears. There is a clear contradiction, because all that is allowed when the pregnancy earlier, during childbirth has not only welcomed, but hinders.
+And grandmother like to remember and saying: "Here you are at that age was very quiet and has rolled over, walked, danced, told verses" (underline). This, of course, the memory property to forget the bad and remember only the good. But we are already the parents, adults with a family and has been a long-awaited baby. And when my mother comes to us, communicating with it, we suddenly enter again in the role of a child suffering from a transitional age. That is why we are trying to assert themselves and to us so it is important to prove their case. And my mother, in turn, takes us seriously, because in front of her her own child, not so long ago (it does not matter that, thirty years passed like a flash), it was just as tiny and just cried in her arms. ( Why is the baby crying? )
 
-How to ease the pain and forget about fear?
+Faced with the problem of misunderstanding and conflict situations, remember that first and foremost your family relations are an example for your child. Even three-month babies well feel your mood, they are very susceptible to the emotional state of the mother and the people around them, when people close to swear, baby begins to cry. Do you want this? Of course not. Try to agree in advance with your spouse and then, and with their parents about the rules and principles of education, which are close to you.
 
-Before birth remember what you were taught techniques to kursah.Seychas your task -
-to listen to their feelings, and monitor their effects, choosing the most effective. Feel like working methods of proper breathing , massage, posture during labor. With this knowledge, you will be able to make better use of them.
+I am the way I am
 
-Learning from mistakes
+If my grandmother too often tries to come to you and you do not like her insistence arrange a visitation schedule. And if, on the contrary, you would expect it from a part of the aid, and it comes to you "visit", do not forget the time in two weeks that she really has his own life and his plans for the weekend. Do not be offended by relatives - you only spoil your mood, but their own, you will never change. Take them for what they are. It is very difficult to find the strength, but try, because it affects the well-being of your child and your family. Although infants and do not understand the words, they feel stress and skin are not able to withstand the negative effects.
 
-The behavior of mothers? Below are described several embodiments of inadequate behavior moms. Wrong thoughts not only interfere with my mother, but also those who help her give birth. "Lord, I can not bear it!" New mother sunk in himself and considers his condition neperenosimym.Ona badly perceives advice and guidance to physicians, forgets all the things learned in the courses of preparation for childbirth, and fully "suffering."
+Often, if grandma is coming to help, which means that you play together with your baby, together to cook and clean the house. What is there to lie down, to meet with a friend or go to yoga! My grandmother used to the fact that motherhood - it is hard work, not fun - it is this idea has always been handed down from generation to generation. Remember, the conditions in which we grew up, when there were no washing machines, diapers, our parents, when their fathers died in the war and the mothers themselves pulled on itself a huge family. Talk about your feelings and desires, because if you keep silent, my grandmother never understand itself, what you want.
 
-This personality type is usually much shouting, and contrary to the "rules" (need to take a deep breath and exhale long shout). Fear screams while inhaling, thus breath, pressed his stomach and tightens the crotch. This prevents the disclosure of the cervix, involves oxygen starvation of tissues (muscles of the uterus are affected first), physical and mental exhaustion. Therefore, when such thoughts mothers condition worsens, difficult labors.
+For the baby it is important to feel the genuine love that comes from an adult, so remember that no nurse does not replace a loving grandmother. A child needs to feel the connection between generations and to be a part of a big family.
 
-"That I have ever given birth - but not for anything!"
-
-The phrase psychologically draws a woman into the past - she is looking for the reasons that led her to this painful condition. Or her thoughts turned to the future (how to avoid this later). As a result of lack of attention, there is no focus on the process of birth, which require the active return in the present.
-
-New mother must be forgetting about the fear, to regulate his mood: seek comfortable posture and correct breathing method, with midwives to perform commands. But in the end it turns out that instead of the consistency of the head and body actions - their complete dissociation. After all, the body is here and now, and the head is occupied by problems of the past and the future. "The culprit of all my sorrows - the husband, because of it I have to suffer!"
-
-So it responds to the psychological type of delivery that all their troubles are always found guilty. But childbirth - is body work, so his condition and need to focus. During labor, the uterus tenses only, the rest of the body should be relaxed, especially crotch. When you think not about your thoughts
-ruled by fear, before the eyes is the image of "bad" person of this crotch and abdominal muscles tense, clenched his teeth. Naoborot.Takie happens all the thoughts and behaviors do not help and hinder childbirth, tightening them.
-
-"What are you doing to me, the monsters!"
-
-Woman draws attention to the actions and phrases okruzhayuschih.Oni as it seems to relate to it, and even disregard agressivno.Eti thoughts lead to behaviors that prevent cooperation actors.
-
-How to behave properly?
-
-What you need to do to be childbirth were "as necessary"? It has been observed that the best way to cope women belonging to them as difficult rabote.Oni suited to the process responsibly, attuning himself to return, for which there is a try - the baby is born, a new man! Women trust their body, which is created by the order of nature, to bear and give birth detey.Oni willing to work hard and be patient - even though the task is difficult, but doable.
-
-Get rid of the fear of childbirth will help a positive attitude. Mothers with the right thoughts focused on their feelings, work his body and ready to help him. This task is the main, the rest is secondary. They do not particularly sensitive issues against the doctor in the hospital environment and other nuances. The medical staff, they know their business see people willing to help. They need to come to an agreement: to listen when you do not know what to do or to explain what is expected of them.
-
-Tip! Even if the birth not the first midwife team must be performed without fail.
-
-Helping to give birth to 5 phrases
-
-At each stage of labor help themselves by setting up a successful outcome:
-
-    Contractions. At this time, it is important to tune, that the birth will end well: my mother will give birth to a healthy baby at the same time preserve the health of herself. "No matter what hurt, but today I face!".
-    Attempts. In this state, the most important thing - to take the pain and help in the mind to stay here. From mood depends on the duration of this phase of the work: "The better I perform obstetrician command (push or not), the quicker will be labor and the better will be the child."
-    Last spurt. It is important to think about what you can not relax and you must mentally stay here, "a little more patience is necessary, a maximum of 10 minutes and all!".
-    During labor, cheered himself with thoughts, adjusts to a positive outcome, patience and work, "Well, soon we will have two (three, four)."
-    Afterbirth. When the child is already there, do not forget that the last also requires effort. Look at the kid and think: "For the sake of the birth of such a miracle can give birth to at least ten times." 
+Silver and gold Grandmother - Sedinko. Grandmother - wrinkles. But all her wrinkles smoothed out, I hand. Hair - silver. Heart - gold. (Hans and Monica Hagen)
 
 
-How's pipsqueak?
-
-Some mothers give birth more easily if they are thinking about the baby or talk to him. After the child birth the same test as for the mother. And if it succeeds, it will dawn the ability to cope with stress. When comes the understanding mother becomes easier to organize themselves and to help myself. Therefore, you should think about what you were taught in the pre-natal courses, trying to remember everything.
-
- Correctly managing your body during labor, you are helping your child more effectively. Because the main thing in this case - a good fight, the timely disclosure of the cervix and effective attempts. Once the baby is born, it is very necessary to get her mother's love, to hear sweet words. And most importantly - you need a mother herself, healthy and caring.
-
-PS
-
-Fear of childbirth childbirth pushes to seek out and believe unfulfilled promises. They are courses for pregnant women, which the organizers offered to take leave, as "the highest, of space." Customizable, during childbirth will be "sweet" and even "orgasmic" experience. All goes well, without pain, and physical and spiritual experiences are comparable with an extraordinary ecstasy.
-After such "processing" a woman in childbirth is in a state of deception expectations. Since birth - a difficult task and usually painful to some extent.
-
-
+ 
