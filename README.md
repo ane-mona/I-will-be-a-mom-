@@ -2,31 +2,33 @@
 
 Pregnancy, proper nutrition, preparation for childbirth, baby care
 
-Moms-grandmother
+Who do we have to be: a girl or a boy?
 
-It is impossible to deny the fact that many of the usual things change with the birth of the baby. First and foremost, we are beginning to try on new roles - we become moms and dads, and our parents - and grandparents.
-Our parents are already included in the age expectations grandchildren would try
-realize their desires, they hoarded inside themselves for a long time. In the Russian tradition of the family assumed that the education of children engaged mother and grandmother, and males are slightly suspended, plunging headlong into the job and about the family providing care to all necessary. Therefore I'd like to talk about the relationship of newly mothers and grandmothers, as they are often faced with a lack of understanding.
+What could be more beautiful than that moment when you find out who you still will be born - a daughter or a son? Indeed, this is a great day in the life of every mom and every family, when it becomes known to the child's sex. But the question is: how do we get the long-awaited news? We come to the doctor at the reception area of ​​approximately 20 weeks, we do ultrasound and the doctor
+indifferent voice said, "So ... Mom ... you will ...". We get information and immediately phoning his wife if he did not close, parents, friends. What if this event to make a holiday? It's a good excuse to once again get together with loved ones and spend time with them, because then it will not be so much.
 
-Kuta or not?
+And why do we have?
 
- The conflict between generations, usually begins to manifest itself in the first months after birth. Swaddle or not swaddle? Sleep with your child, or he should have his own bed? Kuta or temper? Breastfeed or a mixture? What is needed mode and whether it is necessary? Use diapers or not? New mom asking ourselves these questions every day, and there are more and more each day. So arranged that young parents attach great importance to the events occurring in the infant's life, and build your life around a child who is not only the center of the family universe, but also a bone of contention.
- 
- Why is it that grandmothers and mothers are different views? Firstly, because of the age difference. Our parents operate information thirty years ago, when they lived in completely different conditions and had children by Spock. Science, medicine, the production of goods for children and parents do not stand still, held annually every new research and discoveries made in the field of pediatrics, psychology, innovative materials, etc. And it turns out that we ask for good advice to her grandmother, and she teaches us to tightly swaddle, dopaivat some water and do not take on his hands, "yell and stop."
+In America, already have such a holiday, it is called «Gender Reveal Party» (in translation from English means "festival dedicated to the definition of sex"). How did he pass?
+It is possible to agree with the doctor, so he wrote on a piece of paper and put a floor baby leaf in an envelope. Then you need to include the note in the confectionery, where bake a cake. During the party, you can play different games, chat, and then split into two teams. One team will be "for the girl" and the other - "a boy". Then you cut the cake, you can see the color of the filling, and the secret becomes immediately apparent. You can also entrust the organization of the holiday agency, which is now quite a lot. (It so happens that all wanted a girl, and a boy was born, or vice versa. The reasons for this desire and councils upset parents read this article).
 
-And grandmother like to remember and saying: "Here you are at that age was very quiet and has rolled over, walked, danced, told verses" (underline). This, of course, the memory property to forget the bad and remember only the good. But we are already the parents, adults with a family and has been a long-awaited baby. And when my mother comes to us, communicating with it, we suddenly enter again in the role of a child suffering from a transitional age. That is why we are trying to assert themselves and to us so it is important to prove their case. And my mother, in turn, takes us seriously, because in front of her her own child, not so long ago (it does not matter that, thirty years passed like a flash), it was just as tiny and just cried in her arms. ( Why is the baby crying? )
+Surprise ...
 
-Faced with the problem of misunderstanding and conflict situations, remember that first and foremost your family relations are an example for your child. Even three-month babies well feel your mood, they are very susceptible to the emotional state of the mother and the people around them, when people close to swear, baby begins to cry. Do you want this? Of course not. Try to agree in advance with your spouse and then, and with their parents about the rules and principles of education, which are close to you.
+Well, if you absolutely can not stand and want to learn the news directly to the doctor's office, so be it, learn, but keep it a secret from everyone. And try to organize a holiday for yourself. And we can help you with this ideas:
 
-I am the way I am
+    Team. Ask guests to wear pink or blue shirts or if it is not very convenient, prepare for them a different color accessories - be it hair clips, headbands, you can cut and making a mustache, lips, or points on the sticks of pink and blue.
 
-If my grandmother too often tries to come to you and you do not like her insistence arrange a visitation schedule. And if, on the contrary, you would expect it from a part of the aid, and it comes to you "visit", do not forget the time in two weeks that she really has his own life and his plans for the weekend. Do not be offended by relatives - you only spoil your mood, but their own, you will never change. Take them for what they are. It is very difficult to find the strength, but try, because it affects the well-being of your child and your family. Although infants and do not understand the words, they feel stress and skin are not able to withstand the negative effects.
+    Photo for memory. Prepare in advance blue and pink paint and put on a plain white T-shirt. When you already know the sex of the baby, spread your spouse palm and fingers paint the desired color. Let him get up behind you, hug you, and put his hands on his tummy. Ask you to take a picture. And then let him raise his hands up, and the second shot will be clear who are you waiting for - a son or daughter. It seems a great idea to announce the long-awaited news to friends in social networks !
 
-Often, if grandma is coming to help, which means that you play together with your baby, together to cook and clean the house. What is there to lie down, to meet with a friend or go to yoga! My grandmother used to the fact that motherhood - it is hard work, not fun - it is this idea has always been handed down from generation to generation. Remember, the conditions in which we grew up, when there were no washing machines, diapers, our parents, when their fathers died in the war and the mothers themselves pulled on itself a huge family. Talk about your feelings and desires, because if you keep silent, my grandmother never understand itself, what you want.
+    Clothes for the baby. Another way to tell guests about sex baby - deployed in front of them a bundle of clothes. Buy in the children's department of the right color clothes and wrap it in pretty paper. Expand the parcel in front of guests at a party or have your future grandparents.
+    
+      If you already have an older child, involve it in the process. It happens that the birth of a brother or sister's mixed feelings for the older. And at this moment it is very important to feel needed and main. Make the inscription on a T-shirt - "I will have a brother (or sister)." Let the elder wears a t-shirt, and on top of any jacket with a zipper. At the climax, he unbuttons his jacket - and that, ladies! All amazed and happy!
 
-For the baby it is important to feel the genuine love that comes from an adult, so remember that no nurse does not replace a loving grandmother. A child needs to feel the connection between generations and to be a part of a big family.
+    Balloons. Buy bulbs with the expectation of each guest. Before you inflate balls, put them in confetti pink or blue. Give each guest balls and pins. On the count of three, let it all burst their balloons and learn the glad tidings! Another idea with balloons with helium. Place the balls in the right color box. In the hour of X, open the box, fly balls, and guests will know you will be a little prince or princess.
 
-Silver and gold Grandmother - Sedinko. Grandmother - wrinkles. But all her wrinkles smoothed out, I hand. Hair - silver. Heart - gold. (Hans and Monica Hagen)
+    Bow or drawing. If you do not want to collect the guests, but simply to announce the news to the future pope in an unusual way, you can tie a ribbon tummy gift pink or blue color or draw on her belly image that tells your partner whom you waiting for - a daughter or a son.
 
+Oddly enough, this holiday is not there a certain format. You can think for yourself how to spend the day and to inform relatives, who will be born!
+Find out who would be like the next baby .
 
  
